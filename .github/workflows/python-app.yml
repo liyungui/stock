@@ -35,15 +35,15 @@ jobs:
       run: |
         python cninfo.py
     - name: Commit files
-        run: |
+      run: |
           git config --local user.email "liyungui89@163.com"
           git config --local user.name "liyungui"
           git add README.md
           git commit -m "update readme.md `date '+%Y-%m-%d %H:%M:%S'`" #动态提交信息
-      # 推送到github仓库
-      - name: Push changes to github
-        uses: ad-m/github-push-action@master
-        with:
-          github_token: ${{ secrets.GITHUB_TOKEN }}
-          branch: ${{ github.ref }}
+    # 推送到github仓库
+    - name: Push changes to github
+      uses: ad-m/github-push-action@master
+      with:
+        github_token: ${{ secrets.GITHUB_TOKEN }}
+        branch: ${{ github.ref }}
 
