@@ -5,8 +5,7 @@ import datetime
 import json
 import logging
 import re
-from wxpy import *
-
+import pandas as pd
 import requests
 
 
@@ -28,9 +27,7 @@ class Cninfo(object):
 
         self.stockList = []  # 股票列表
 
-        self.stock_name = ''  # 当前搜索股票名称
         self.stock_code = ''  # 当前搜索股票代码
-        self.keyword = ''  # 当前搜索关键字
         self.group_title = ''  # 当前组名(搜索关键字，搜索股票代码)
         self.pageNum = 1  # 当前页码
         self.content_list = []  # 结果列表
@@ -40,6 +37,7 @@ class Cninfo(object):
         for i in range(retry):
             try:
                 r = requests.post(url, headers=self.headers, data=data)
+                print(r.text)
                 if not r.text or r.status_code != 200:
                     continue
                 else:
@@ -72,7 +70,7 @@ class Cninfo(object):
             'tabName': 'fulltext',
             'plate': '',
             'stock': self.stock_code,
-            'searchkey': self.keyword,
+            'searchkey': self.group_title,  # 多个关键字以分号分隔
             'secid': '',
             'category': '',
             'trade': '',
@@ -88,10 +86,7 @@ class Cninfo(object):
 
     def parse(self, response):
         dic = json.loads(response.text)
-        if self.keyword != '':
-            print(self.keyword)
-        else:
-            print(self.stock_name)
+        print(self.group_title)
         print(dic)
 
         if dic.get("announcements"):
@@ -150,7 +145,8 @@ class Cninfo(object):
 
         print(self.content)
 
-        self.url = "https://sc.ftqq.com/SCU147801T940ef25022761a5471783a24abf7318f5ff835bfbb8c0.send"
+        # self.url = "https://sc.ftqq.com/SCU147801T940ef25022761a5471783a24abf7318f5ff835bfbb8c0.send"
+        self.url = "https://sctapi.ftqq.com/SCT15193TK4ooKrGEAsw0lMBMnPqaPNEC.send"
         post_data = {
             'text': title,
             'desp': self.content
@@ -160,43 +156,67 @@ class Cninfo(object):
 
     def build_content(self):
         if self.content_list.__len__() > 0:
-            self.content += self.group_title + ' 有新公告 \n\n'
+            self.content = f'{self.content}{self.group_title} 有{self.content_list.__len__()}条新公告 \n\n'
             for item in self.content_list:
-                self.content += item["company"] + ':' + item["title"] + ' ' + item["url"] + '\n\n'
+                self.content = f'{self.content}{item["company"]}:{item["title"]} {item["url"]} \n\n'
             self.content_list.clear()
-        else:
-            self.content += self.group_title + ' 没有新公告 \n\n'
+        # else:
+        # self.content = f'{self.content}{self.group_title} 没有新公告 \n\n'
 
 
 def main():
     logging.info('Start')
-    keywords = ['要约收购', '混合所有制改革', '并购重组', '定向增发', '增持', '减持', '股权质押', '发行股份', '风险警示', '可转换']
-    # keywords = ['发行股份']
-    stocks = ['中国平安', '格力电器', '海螺水泥', '东方财富', '牧原股份']
+    keywords = [
+        '要约收购', '混合所有制改革', '并购重组', '定向增发',
+        # '增持', '减持',
+        # '股权质押',
+        # '发行股份',
+        # '风险警示',
+        # '可转换债券',
+        # '停牌'
+    ]
+
+    stock_names = [
+        '东方日升', '天味食品', '*ST融捷', '爱尔眼科', '阳光电源', '新城控股', '盛宏股份', '科顺股份', '金域医学', '德赛电池', '邮储银行', '兴齐眼药', '爱美客', '金龙鱼',
+        '华域汽车', '伊利股份', '兴业银行', '潍柴动力', '保利地产', '格力电器', '海螺水泥', '宋城演艺', '中国平安', '华宇软件', '分众传媒', '安琪酵母', '上海机场', '伟星新材',
+        '招商银行', '海康威视', '福耀玻璃', '中顺洁柔', '瀚蓝环境', '恒瑞医药', '平安银行', '万科A', '德赛电池', '中兴通讯', 'TCL科技', '美的集团''潍柴动力',
+        '贵州茅台', '中国平安', '招商银行', '格力电器', '海螺水泥', '东方财富', '牧原股份', '旗滨集团', '五粮液', '恒瑞医药', '长江电力',
+        '海天味业', '华域汽车', '兴业银行', '保利地产', '宋城演艺',
+        '立讯精密', '药明康德', '东方财富', '万华化学', '宁德时代', '长江电力', '美的集团', '恒瑞医药', '招商银行', '中国中免', '中国平安', '五粮液', '贵州茅台', '海天味业',
+        '中国重汽',
+        '三一重工', '顺丰控股', '东方雨虹', '万孚生物', '片仔癀', '昭衍新药', '通威股份', '千禾味业', '隆基股份',
+        '新产业', '卫星石化', '歌尔股份', '三安光电', '乐普医疗', '博腾股份', '泰格医药',
+        '生物股份',
+        '康泰生物'
+        '汤臣倍健',
+        '迈瑞医疗', '海螺水泥', '宁德时代', '海康威视', '牧原股份', '中信建投', '立讯精密', '顺丰控股', '韦尔股份',
+        '伊利股份', '三一重工', '药明康德', '中公教育', '宁波银行', '万华化学', '爱尔眼科', '双汇发展', '新希望', '上海机场', '智飞生物', '闻泰科技',
+        '金山办公', '长春高新', '用友网络', '隆基股份', '云南白药', '汇顶科技', '恒力石化', '兆易创新', '永辉超市', '公牛集团', '片仔癀',
+        '深南电路'
+    ]
+
+    stock_names = pd.unique(stock_names).tolist()
 
     obj = Cninfo()
 
-    obj.stock_list()
+    # obj.stock_list()
 
-    for keyword in keywords:
-        obj.keyword = keyword
-        obj.group_title = obj.keyword
-        obj.pageNum = 1
-        obj.search()
-
-    for stock in stocks:
-        obj.keyword = ''
-        obj.stock_name = stock
-        obj.group_title = obj.stock_name
-        obj.stock_code = ''
-        for stock_code in obj.stockList:
-            if stock_code['zwjc'] == obj.stock_name:
-                obj.stock_code = stock_code['code'] + ',' + stock_code['orgId']
-                obj.pageNum = 1
-                obj.search()
-                break
-        if not obj.stock_code:
-            print(stock + ' 找不到匹配的 code')
+    # for keyword in keywords:
+    #     obj.group_title = keyword
+    #     obj.pageNum = 1
+    #     obj.search()
+    #
+    # for stock_name in stock_names:
+    #     obj.group_title = stock_name
+    #     obj.stock_code = ''
+    #     for stock_code in obj.stockList:
+    #         if stock_code['zwjc'] == stock_name:
+    #             obj.stock_code = stock_code['code'] + ',' + stock_code['orgId']
+    #             obj.pageNum = 1
+    #             obj.search()
+    #             break
+    #     if not obj.stock_code:
+    #         print(stock_name + ' 找不到匹配的 code')
 
     obj.sendWX()
 
