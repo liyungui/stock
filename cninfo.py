@@ -163,13 +163,18 @@ class Cninfo(object):
         # else:
         # self.content = f'{self.content}{self.group_title} 没有新公告 \n\n'
 
+    def writeFile(self):
+        f = open('README.md', 'w')
+        f.write(self.content)
+        f.close()
+
 
 def main():
     logging.info('Start')
     keywords = [
         '要约收购', '混合所有制改革', '并购重组', '定向增发',
         # '增持', '减持',
-        # '股权质押',
+        # '股权质押',¬
         # '发行股份',
         # '风险警示',
         # '可转换债券',
@@ -199,26 +204,27 @@ def main():
 
     obj = Cninfo()
 
-    # obj.stock_list()
+    obj.stock_list()
 
-    # for keyword in keywords:
-    #     obj.group_title = keyword
-    #     obj.pageNum = 1
-    #     obj.search()
-    #
-    # for stock_name in stock_names:
-    #     obj.group_title = stock_name
-    #     obj.stock_code = ''
-    #     for stock_code in obj.stockList:
-    #         if stock_code['zwjc'] == stock_name:
-    #             obj.stock_code = stock_code['code'] + ',' + stock_code['orgId']
-    #             obj.pageNum = 1
-    #             obj.search()
-    #             break
-    #     if not obj.stock_code:
-    #         print(stock_name + ' 找不到匹配的 code')
+    for keyword in keywords:
+        obj.group_title = keyword
+        obj.pageNum = 1
+        obj.search()
 
-    obj.sendWX()
+    for stock_name in stock_names:
+        obj.group_title = stock_name
+        obj.stock_code = ''
+        for stock_code in obj.stockList:
+            if stock_code['zwjc'] == stock_name:
+                obj.stock_code = stock_code['code'] + ',' + stock_code['orgId']
+                obj.pageNum = 1
+                obj.search()
+                break
+        if not obj.stock_code:
+            print(stock_name + ' 找不到匹配的 code')
+
+    # obj.sendWX()
+    obj.writeFile();
 
 
 if __name__ == '__main__':
