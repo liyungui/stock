@@ -2,6 +2,10 @@
 
 金域医学:广州金域医学检验集团股份有限公司股东集中竞价减持股份进展公告 http://static.cninfo.com.cn/finalpage/2021-04-06/1209637534.PDF 
 
+中顺洁柔 有1条新公告 
+
+中顺洁柔:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-04-06/1209636970.PDF 
+
 药明康德 有1条新公告 
 
 药明康德:关于认购私募基金份额的公告 http://static.cninfo.com.cn/finalpage/2021-04-06/1209638105.PDF 
@@ -15,6 +19,10 @@
 隆基股份 有1条新公告 
 
 隆基股份:联合资信评估股份有限公司关于终止“隆20转债”信用等级的公告 http://static.cninfo.com.cn/finalpage/2021-04-06/1209637634.PDF 
+
+乐普医疗 有1条新公告 
+
+乐普医疗:向不特定对象发行可转换公司债券发行结果公告 http://static.cninfo.com.cn/finalpage/2021-04-06/1209638415.PDF 
 
 韦尔股份 有1条新公告 
 
@@ -39,4 +47,10 @@
 汇顶科技:关于以集中竞价交易方式回购公司股份方案的报告书 http://static.cninfo.com.cn/finalpage/2021-04-06/1209638869.PDF 
 
 汇顶科技:关于2018年股票期权激励计划首次授予部分2021年第一季度自主行权结果暨股份变动的公告 http://static.cninfo.com.cn/finalpage/2021-04-06/1209638868.PDF 
+
+恒力石化 有2条新公告 
+
+恒力石化:恒力石化2021年第一季度业绩预增公告 http://static.cninfo.com.cn/finalpage/2021-04-06/1209639020.PDF 
+
+恒力石化:恒力石化2020年度业绩快报公告 http://static.cninfo.com.cn/finalpage/2021-04-06/1209639019.PDF 
 
