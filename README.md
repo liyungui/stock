@@ -1,116 +1,116 @@
-要约收购 有6条新公告 
+要约收购 有3条新公告 
 
-巴安水务:关于提请股东大会审议同意山东高创免于发出收购要约的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209649920.PDF 
+豫能控股:中原证券股份有限公司关于河南省财政厅豁免要约收购河南豫能控股股份有限公司的2020年度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209657484.PDF 
 
-惠而浦:关于广东格兰仕家用电器制造有限公司要约收购公司股份的第二次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209649693.PDF 
+安彩高科:中原证券股份有限公司关于河南省财政厅豁免要约收购河南安彩高科股份有限公司的2020年度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209656893.PDF 
 
-辽港股份:北京市中伦律师事务所关于营口港务集团有限公司、大连港集团有限公司及其一致行动人收购辽宁港口股份有限公司免于发出要约事宜的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-08/1209647771.PDF 
+博汇纸业:海通证券股份有限公司关于金光纸业（中国）投资有限公司要约收购山东博汇纸业股份有限公司之2020年度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-04-09/1209656759.PDF 
 
-天药股份:天津天药药业股份有限公司关于津沪深生物医药科技有限公司要约收购公司股份之第一次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209647742.PDF 
+并购重组 有1条新公告 
 
-中新药业:中新药业关于津沪深生物医药科技有限公司要约收购公司股份之第一次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209647739.PDF 
+瑞泰科技:关于收到中国证监会上市公司并购重组审核委员会审核公司发行股份购买资产并募集配套资金暨关联交易事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209657875.PDF 
 
-万年青:中信证券股份有限公司关于江西省投资集团有限公司豁免要约收购江西万年青水泥股份有限公司的2020年度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209647630.PDF 
+德赛电池 有2条新公告 
 
-伊利股份 有2条新公告 
+德赛电池:2021年第一季度业绩预告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655305.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于2021年度第十二期超短期融资券发行结果的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648023.PDF 
+德赛电池:关于筹划重大事项的进展公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655304.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于2021年度第十三期超短期融资券发行结果的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648022.PDF 
+爱美客 有9条新公告 
 
-海螺水泥 有1条新公告 
+爱美客:公司章程（2021.04修订） http://static.cninfo.com.cn/finalpage/2021-04-09/1209655653.PDF 
 
-海螺水泥:高管集中竞价减持股份计划公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648655.PDF 
+爱美客:内幕信息知情人登记备案制度（2021.04修订） http://static.cninfo.com.cn/finalpage/2021-04-09/1209655652.PDF 
 
-安琪酵母 有1条新公告 
+爱美客:关于召开2021年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655651.PDF 
 
-安琪酵母:安琪酵母关于收到政府补助的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648653.PDF 
+爱美客:中信证券关于爱美客变更部分募集资金投资项目实施主体暨使用募集资金向全资子公司增资的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655650.PDF 
 
-上海机场 有1条新公告 
+爱美客:关于变更部分募集资金投资项目实施主体暨使用募集资金向全资子公司增资的公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655649.PDF 
 
-上海机场:上海机场关于控股股东开展转融通证券出借业务的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209647728.PDF 
+爱美客:第二届监事会第十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655648.PDF 
 
-中顺洁柔 有2条新公告 
+爱美客:关于修订《公司章程》并授权办理工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655647.PDF 
 
-中顺洁柔:2021年度第三次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648968.PDF 
+爱美客:独立董事关于公司第二届董事会第二十次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655646.PDF 
 
-中顺洁柔:2021年度第三次临时股东大会会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648967.PDF 
+爱美客:第二届董事会第二十次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655645.PDF 
+
+保利地产 有2条新公告 
+
+保利地产:保利发展控股集团股份有限公司关于本公司获得房地产项目的公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209657789.PDF 
+
+保利地产:保利发展控股集团股份有限公司2021年3月份销售情况简报 http://static.cninfo.com.cn/finalpage/2021-04-09/1209657788.PDF 
 
 瀚蓝环境 有1条新公告 
 
-瀚蓝环境:关于实施“瀚蓝转债”赎回暨摘牌的第三次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648839.PDF 
+瀚蓝环境:2020年度第十期超短期融资券兑付公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655809.PDF 
 
-恒瑞医药 有1条新公告 
+平安银行 有2条新公告 
 
-恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209647738.PDF 
+平安银行:平安银行股份有限公司2020年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209656306.PDF 
 
-东方财富 有2条新公告 
+平安银行:平安银行2020年年度股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-09/1209656305.PDF 
 
-东方财富:东方财富信息股份有限公司关于签署最高额保证合同的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648740.PDF 
+万科A 有1条新公告 
 
-东方财富:东方财富信息股份有限公司创业板向不特定对象发行可转换公司债券网上发行中签率及优先配售结果公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648737.PDF 
+万科A:关于董事会会议召开日期的公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209658976.PDF 
 
-旗滨集团 有1条新公告 
+中兴通讯 有2条新公告 
 
-旗滨集团:旗滨集团关于中长期发展计划之第二期员工持股计划2021年第一次持有人会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209647846.PDF 
+中兴通讯:关于按照《香港上市规则》公布2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209656825.PDF 
 
-药明康德 有1条新公告 
+中兴通讯:关于按照《香港上市规则》公布2021年3月份证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209656824.PDF 
 
-药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648295.PDF 
+东方财富 有1条新公告 
 
-东方雨虹 有12条新公告 
+东方财富:东方财富信息股份有限公司创业板向不特定对象发行可转换公司债券网上中签结果公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655233.PDF 
 
-东方雨虹:北京观韬中茂律师事务所关于北京东方雨虹防水技术股份有限公司2021年员工持股计划（草案）的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648433.PDF 
+旗滨集团 有2条新公告 
 
-东方雨虹:2021年第一季度业绩预告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648432.PDF 
+旗滨集团:旗滨集团2021年第一季度业绩预增公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209657283.PDF 
 
-东方雨虹:关于使用部分闲置募集资金暂时补充流动资金的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648431.PDF 
+旗滨集团:株洲旗滨集团股份有限公司公开发行可转换公司债券发行提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209657282.PDF 
 
-东方雨虹:关于公司控股股东进行股票质押式回购交易的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648430.PDF 
+药明康德 有2条新公告 
 
-东方雨虹:关于召开2021年第二次临时股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648429.PDF 
+药明康德:2020年年度股东大会、2021年第一次A股类别股东会议、2021年第一次H股类别股东会议会议材料 http://static.cninfo.com.cn/finalpage/2021-04-09/1209658906.PDF 
 
-东方雨虹:关于公司以自筹资金预先投入募集资金投资项目情况鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648428.PDF 
+药明康德:关于召开2020年年度股东大会、2021年第一次A股类别股东会议及2021年第一次H股类别股东会议的通知 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655640.PDF 
 
-东方雨虹:中国国际金融股份有限公司关于东方雨虹股份有限公司使用非公开发行股票募集资金置换预先投入募投项目自筹资金的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648427.PDF 
+顺丰控股 有1条新公告 
 
-东方雨虹:中国国际金融股份有限公司关于北京东方雨虹防水技术股份有限公司使用部分闲置募集资金暂时补充流动资金的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648426.PDF 
+顺丰控股:2021年第一季度业绩预告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209659314.PDF 
 
-东方雨虹:独立董事关于第七届董事会第三十二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648425.PDF 
+东方雨虹 有5条新公告 
 
-东方雨虹:关于使用部分募集资金置换预先投入募投项目自筹资金的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648424.PDF 
+东方雨虹:关于2021年度日常关联交易预计的公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655382.PDF 
 
-东方雨虹:北京东方雨虹防水技术股份有限公司第七届监事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648423.PDF 
+东方雨虹:中国国际金融股份有限公司关于北京东方雨虹防水技术股份有限公司日常关联交易预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655381.PDF 
 
-东方雨虹:北京东方雨虹防水技术股份有限公司第七届董事会第三十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648422.PDF 
+东方雨虹:独立董事关于第七届董事会第三十三次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655380.PDF 
 
-片仔癀 有5条新公告 
+东方雨虹:独立董事关于第七届董事会第三十三次会议相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655379.PDF 
 
-片仔癀:泰和泰（北京）律师事务所关于漳州片仔癀药业股份有限公司2021年第一次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648325.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2021年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648324.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司关于调整董事会专业委员会的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648323.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司关于董事长退休辞职的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648322.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司第六届董事会第三十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648321.PDF 
+东方雨虹:北京东方雨虹防水技术股份有限公司第七届董事会第三十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655378.PDF 
 
 通威股份 有1条新公告 
 
-通威股份:通威股份有限公司关于归还暂时补充流动资金的闲置募集资金的公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209648326.PDF 
+通威股份:通威股份有限公司关于控股股东股份质押解除的公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209656901.PDF 
 
-卫星石化 有2条新公告 
+中信建投 有2条新公告 
 
-卫星石化:关于浙江卫星石化股份有限公司2021年第二次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-08/1209649827.PDF 
+中信建投:董事會會議通告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655815.PDF 
 
-卫星石化:2021年第二临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209649826.PDF 
+中信建投:截至2021年3月31日止月份之股份發行人的證券變動月報表 http://static.cninfo.com.cn/finalpage/2021-04-09/1209655814.PDF 
 
-博腾股份 有1条新公告 
+长春高新 有1条新公告 
 
-博腾股份:2020年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209649132.PDF 
+长春高新:关于向特定对象发行可转换公司债券解除锁定的提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-09/1209656270.PDF 
 
-双汇发展 有1条新公告 
+用友网络 有2条新公告 
 
-双汇发展:关于使用闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-04-08/1209649230.PDF 
+用友网络:用友网络2020年年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-04-09/1209657958.PDF 
+
+用友网络:用友网络关于召开2020年年度股东大会的提示性通知 http://static.cninfo.com.cn/finalpage/2021-04-09/1209657043.PDF 
 
