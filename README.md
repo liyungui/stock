@@ -1,346 +1,262 @@
-新城控股 有1条新公告 
+中国平安 有2条新公告 
 
-新城控股:新城控股关于控股股东部分股权质押的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209727719.PDF 
+中国平安:平安银行股份有限公司2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738447.PDF 
 
-金域医学 有30条新公告 
+中国平安:中国平安关于披露平安银行2021年第一季度报告的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738442.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于独立董事公开征集投票权的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729670.PDF 
+华宇软件 有33条新公告 
 
-金域医学:广州金域医学检验集团股份有限公司2021年股票期权激励计划（草案） http://static.cninfo.com.cn/finalpage/2021-04-20/1209729669.PDF 
+华宇软件:关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739183.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2021年股票期权激励计划实施考核管理办法 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729668.PDF 
+华宇软件:民生证券股份有限公司关于北京华宇软件股份有限公司2020年度内部控制评价报告的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739182.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司监事会关于公司股票期权激励计划（草案）相关事项的审核意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729667.PDF 
+华宇软件:2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739181.PDF 
 
-金域医学:北京市中伦律师事务所关于广州金域医学检验集团股份有限公司2021年股票期权激励计划的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729666.PDF 
+华宇软件:2020年度董事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739179.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2021年股票期权激励计划草案摘要公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729665.PDF 
+华宇软件:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739178.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于控股股东、实际控制人部分股份解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729664.PDF 
+华宇软件:2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739176.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728305.PDF 
+华宇软件:关于2021年度公司董事、监事、高管薪酬方案的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739175.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728304.PDF 
+华宇软件:公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739174.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司章程 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728303.PDF 
+华宇软件:民生证券股份有限公司关于北京华宇软件股份有限公司持续督导2020年度跟踪报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739173.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于变更注册资本暨修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728302.PDF 
+华宇软件:民生证券股份有限公司关于北京华宇软件股份有限公司2020年度募集资金存放与使用情况的专项核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739172.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于公司及子公司向银行申请综合授信额度的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728301.PDF 
+华宇软件:民生证券股份有限公司关于北京华宇软件股份有限公司预计2021年度日常关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739171.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司独立董事关于相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728300.PDF 
+华宇软件:2020年度内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739170.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728299.PDF 
+华宇软件:2020年度募集资金存放与使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739169.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728298.PDF 
+华宇软件:募集资金存放与使用情况鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739168.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728297.PDF 
+华宇软件:控股股东及其他关联方资金占用情况的专项说明 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739167.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司独立董事对公司相关事项发表的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728296.PDF 
+华宇软件:北京市奋迅律师事务所关于北京华宇软件股份有限公司2018年股票期权激励计划注销部分股票期权的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739166.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司第二届董事会第二十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728295.PDF 
+华宇软件:关于注销2018年股票期权激励计划部分已授予股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739165.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于2020年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728294.PDF 
+华宇软件:关于公司及全资子公司向银行申请综合授信提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739164.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年度审计委员会履职情况报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728293.PDF 
+华宇软件:2021年度日常关联交易预计公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739163.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年度内部控制审计报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728292.PDF 
+华宇软件:关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739162.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年度社会责任报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728291.PDF 
+华宇软件:关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739161.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728290.PDF 
+华宇软件:2020年度监事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739160.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年度独立董事述职报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728289.PDF 
+华宇软件:独立董事2020年度述职报告（朱恒源） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739159.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年度关联方占用资金专项审计说明 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728288.PDF 
+华宇软件:独立董事2020年度述职报告（肖星） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739158.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年度审计报告及财务报表 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728287.PDF 
+华宇软件:独立董事2020年度述职报告（罗婷） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739157.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司独立董事关于2020年度对外担保情况的专项说明及独立意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728286.PDF 
+华宇软件:独立董事2020年度述职报告（甘培忠） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739156.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728285.PDF 
+华宇软件:独立董事对相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739155.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728284.PDF 
+华宇软件:独立董事对相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739154.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司第二届监事会第二十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209728283.PDF 
+华宇软件:一季报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739153.PDF 
 
-兴齐眼药 有38条新公告 
+华宇软件:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739152.PDF 
 
-兴齐眼药:关于召开2020年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723033.PDF 
+华宇软件:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739151.PDF 
 
-兴齐眼药:关于注销全资子公司河南兴齐眼药科技有限公司的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723032.PDF 
+华宇软件:2020年年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739150.PDF 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司董事会议事规则重大投资决策制度（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723031.PDF 
+华宇软件:年报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739149.PDF 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司对外担保管理办法（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723030.PDF 
+海康威视 有1条新公告 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司关联交易管理办法（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723029.PDF 
+海康威视:董事会2020年年度工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739015.PDF 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司募集资金管理制度（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723028.PDF 
+恒瑞医药 有2条新公告 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司总经理工作细则（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723027.PDF 
+恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737328.PDF 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司股东大会议事规则（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723026.PDF 
+恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737326.PDF 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司董事会议事规则（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723025.PDF 
+平安银行 有4条新公告 
 
-兴齐眼药:关于修订公司治理相关制度的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723024.PDF 
+平安银行:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738015.PDF 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723023.PDF 
+平安银行:2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738014.PDF 
 
-兴齐眼药:关于变更公司注册资本并修订公司章程的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723022.PDF 
+平安银行:一季报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738013.PDF 
 
-兴齐眼药:关于沈阳兴齐眼药股份有限公司2018年限制性股票激励计划第二个解除限售期解除限售事项及回购注销部分限制性股票事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723021.PDF 
+平安银行:一季报监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738012.PDF 
 
-兴齐眼药:监事会关于回购注销部分限制性股票的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723020.PDF 
+东方财富 有1条新公告 
 
-兴齐眼药:关于回购注销部分限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723019.PDF 
+东方财富:东方财富信息股份有限公司关于子公司东方财富证券股份有限公司2021年第一期短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739596.PDF 
 
-兴齐眼药:监事会关于公司2018年限制性股票激励计划第二个解除限售期可解除限售激励对象名单的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723018.PDF 
+长江电力 有1条新公告 
 
-兴齐眼药:关于2018年限制性股票激励计划第二个解锁期解锁条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723017.PDF 
+长江电力:长江电力关于召开2020年度和2021年第一季度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209736694.PDF 
 
-兴齐眼药:关于续聘2021年度审计机构的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723016.PDF 
+立讯精密 有43条新公告 
 
-兴齐眼药:关于举行2020年度业绩网上说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723015.PDF 
+立讯精密:关于公司2021年度日常关联交易预计公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739770.PDF 
 
-兴齐眼药:关于2020年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723014.PDF 
+立讯精密:监事会对公司2020年度内部控制自我评价报告的审核意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739769.PDF 
 
-兴齐眼药:关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723013.PDF 
+立讯精密:监事会对公司《2020年年度报告及年度报告摘要》的审核意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739768.PDF 
 
-兴齐眼药:非经营性资金占用及其他关联资金往来情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723012.PDF 
+立讯精密:2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739767.PDF 
 
-兴齐眼药:监事会关于2020年度内部控制自我评价报告的审核意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723011.PDF 
+立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司内部控制规则落实自查表的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739766.PDF 
 
-兴齐眼药:内部控制自我评价报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723010.PDF 
+立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司2020年度内部控制的自我评价报告的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739765.PDF 
 
-兴齐眼药:2020年度独立董事述职报告（李地) http://static.cninfo.com.cn/finalpage/2021-04-20/1209723009.PDF 
+立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司2020年度募集资金存放与使用情况的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739764.PDF 
 
-兴齐眼药:2020年度独立董事述职报告（王忠诚) http://static.cninfo.com.cn/finalpage/2021-04-20/1209723008.PDF 
+立讯精密:2020年度董事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739763.PDF 
 
-兴齐眼药:2020年度独立董事述职报告（沙沂） http://static.cninfo.com.cn/finalpage/2021-04-20/1209723007.PDF 
+立讯精密:关于职工代表大会选举产生第五届监事会职工代表监事的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739762.PDF 
 
-兴齐眼药:独立董事关于第四届董事会第二次会议相关事项发表的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723006.PDF 
+立讯精密:关于募集资金使用完毕并注销募集资金专户的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739761.PDF 
 
-兴齐眼药:独立董事关于第四届董事会第二次会议相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723005.PDF 
+立讯精密:2020年度监事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739760.PDF 
 
-兴齐眼药:2020年度财务决算报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723004.PDF 
+立讯精密:关于控股子公司增资其全资子公司的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739759.PDF 
 
-兴齐眼药:2020年度监事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723003.PDF 
+立讯精密:关于公司为境外全资子公司提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739758.PDF 
 
-兴齐眼药:2020年度董事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723002.PDF 
+立讯精密:关于公司向银行申请综合授信额度的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739757.PDF 
 
-兴齐眼药:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723001.PDF 
+立讯精密:独立董事关于续聘会计师事务所的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739756.PDF 
 
-兴齐眼药:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723000.PDF 
+立讯精密:关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739755.PDF 
 
-兴齐眼药:2020年年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209722999.PDF 
+立讯精密:总经理工作细则（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739754.PDF 
 
-兴齐眼药:2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209722998.PDF 
+立讯精密:对外投资管理办法（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739753.PDF 
 
-兴齐眼药:2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-20/1209722997.PDF 
+立讯精密:公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739752.PDF 
 
-兴齐眼药:年报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209722996.PDF 
+立讯精密:关于修改《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739751.PDF 
 
-保利地产 有22条新公告 
+立讯精密:独立董事提名人声明（三） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739750.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年度募集资金存放与使用情况鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726573.PDF 
+立讯精密:独立董事提名人声明（二） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739749.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年度社会责任报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726572.PDF 
+立讯精密:独立董事提名人声明（一） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739748.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年度内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726571.PDF 
+立讯精密:独立董事候选人声明（张英） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739747.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年度董事会独立董事述职报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726570.PDF 
+立讯精密:独立董事候选人声明（宋宇红） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739746.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年度控股股东及其他关联方资金占用情况的说明 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726569.PDF 
+立讯精密:独立董事候选人声明（刘中华） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739745.PDF 
 
-保利地产:保利发展控股集团股份有限公司审计报告及财务报告（2020年度） http://static.cninfo.com.cn/finalpage/2021-04-20/1209726568.PDF 
+立讯精密:独立董事对担保等事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739744.PDF 
 
-保利地产:保利发展控股集团股份有限公司独立董事关于公司对外担保情况的专项说明及独立意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726567.PDF 
+立讯精密:2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739743.PDF 
 
-保利地产:保利发展控股集团股份有限公司与合营联营企业及其他关联方关联交易公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726566.PDF 
+立讯精密:独立董事年度述职报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739742.PDF 
 
-保利地产:保利发展控股集团股份有限公司关于2021年度对外提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726565.PDF 
+立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司2021年度日常关联交易预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739741.PDF 
 
-保利地产:保利发展控股集团股份有限公司关于2020年度募集资金存放与实际使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726564.PDF 
+立讯精密:独立董事关于2021年度日常关联交易预计的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739740.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726563.PDF 
+立讯精密:关于2020年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739739.PDF 
 
-保利地产:保利发展控股集团股份有限公司关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726562.PDF 
+立讯精密:年度关联方资金占用专项审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739738.PDF 
 
-保利地产:保利发展控股集团股份有限公司2021-2023年股东回报规划 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726561.PDF 
+立讯精密:独立董事2020年度述职报告（林一飞） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739737.PDF 
 
-保利地产:保利发展控股集团股份有限公司第六届董事会第六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726560.PDF 
+立讯精密:独立董事2020年度述职报告（张英） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739736.PDF 
 
-保利地产:保利发展控股集团股份有限公司关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726559.PDF 
+立讯精密:年度募集资金使用鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739735.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年度利润分配方案公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726558.PDF 
+立讯精密:年度募集资金使用情况专项说明 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739734.PDF 
 
-保利地产:保利发展控股集团股份有限公司第六届监事会第八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726557.PDF 
+立讯精密:内部控制鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739733.PDF 
 
-保利地产:华泰联合证券有限责任公司关于保利发展控股集团股份有限公司所属保利物业服务股份有限公司境外上市之持续上市总结报告书 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726556.PDF 
+立讯精密:内部控制自我评价报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739732.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年度董事会审计委员会履职情况报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726555.PDF 
+立讯精密:社会责任报告（随年报报送） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739731.PDF 
 
-保利地产:中信证券股份有限公司关于保利发展2020年度募集资金存放与使用情况之专项核查意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726554.PDF 
+立讯精密:2020年年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739730.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年度内部控制审计报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726553.PDF 
+立讯精密:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739729.PDF 
 
-保利地产:保利发展控股集团股份有限公司2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726552.PDF 
+立讯精密:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739728.PDF 
 
-瀚蓝环境 有1条新公告 
+药明康德 有1条新公告 
 
-瀚蓝环境:关于实施“瀚蓝转债”赎回暨摘牌的第五次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209722299.PDF 
-
-恒瑞医药 有25条新公告 
-
-恒瑞医药:独立董事候选人声明 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729237.PDF 
-
-恒瑞医药:独立董事提名人声明 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729236.PDF 
-
-恒瑞医药:恒瑞医药独立董事关于第八届董事会第九次会议有关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729235.PDF 
-
-恒瑞医药:恒瑞医药第八届董事会第九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729234.PDF 
-
-恒瑞医药:资产评估报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729233.PDF 
-
-恒瑞医药:恒瑞医药关于子公司与关联人向控股公司增资暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729232.PDF 
-
-恒瑞医药:恒瑞医药公司章程（2021年修订） http://static.cninfo.com.cn/finalpage/2021-04-20/1209729231.PDF 
-
-恒瑞医药:2020年度内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729230.PDF 
-
-恒瑞医药:恒瑞医药审计委员会履职情况汇总报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729229.PDF 
-
-恒瑞医药:2020年度内部控制审计报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729228.PDF 
-
-恒瑞医药:恒瑞医药2020年度独立董事述职报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729227.PDF 
-
-恒瑞医药:关于江苏恒瑞医药股份有限公司2020年度非经营性资金占用及其他关联资金往来情况的专项说明 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729226.PDF 
-
-恒瑞医药:2020年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729225.PDF 
-
-恒瑞医药:恒瑞医药公司章程修正案 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729224.PDF 
-
-恒瑞医药:恒瑞医药2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729223.PDF 
-
-恒瑞医药:恒瑞医药2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729222.PDF 
-
-恒瑞医药:恒瑞医药2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729221.PDF 
-
-恒瑞医药:恒瑞医药2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729220.PDF 
-
-恒瑞医药:恒瑞医药关于独立董事任期届满辞职的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729219.PDF 
-
-恒瑞医药:恒瑞医药关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729218.PDF 
-
-恒瑞医药:恒瑞医药独立董事关于第八届董事会第九次会议相关议案的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729217.PDF 
-
-恒瑞医药:恒瑞医药关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729216.PDF 
-
-恒瑞医药:恒瑞医药2020年年度利润分配方案公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729215.PDF 
-
-恒瑞医药:恒瑞医药第八届监事会第八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729214.PDF 
-
-恒瑞医药:恒瑞医药关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209729213.PDF 
-
-万科A 有1条新公告 
-
-万科A:关于董事辞职的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209725105.PDF 
+药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737703.PDF 
 
 万华化学 有1条新公告 
 
-万华化学:万华化学2020年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726805.PDF 
+万华化学:万华化学2021年第五期超短期融资券发行结果公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209736560.PDF 
 
-美的集团 有2条新公告 
+三一重工 有1条新公告 
 
-美的集团:关于聘任公司首席财务官的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723782.PDF 
+三一重工:三一重工股份有限公司2020年年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738212.PDF 
 
-美的集团:第三届董事会第三十一次会议决议 http://static.cninfo.com.cn/finalpage/2021-04-20/1209723781.PDF 
+隆基股份 有25条新公告 
 
-顺丰控股 有1条新公告 
+隆基股份:隆基股份2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737386.PDF 
 
-顺丰控股:2021年3月快递服务业务经营简报 http://static.cninfo.com.cn/finalpage/2021-04-20/1209727507.PDF 
+隆基股份:隆基股份公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209737385.PDF 
 
-通威股份 有2条新公告 
+隆基股份:隆基股份关于变更注册资本及修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737384.PDF 
 
-通威股份:中信建投证券股份有限公司关于通威股份有限公司2020年持续督导年度报告书 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726979.PDF 
+隆基股份:隆基股份关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737383.PDF 
 
-通威股份:中信建投证券股份有限公司关于通威股份有限公司2019年公开发行可转换公司债券之保荐总结报告书 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726978.PDF 
+隆基股份:隆基股份关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737382.PDF 
 
-中公教育 有1条新公告 
+隆基股份:隆基股份2020年度利润分配及资本公积金转增股本预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737381.PDF 
 
-中公教育:关于控股股东、实际控制人部分股份质押延期购回的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726260.PDF 
+隆基股份:隆基股份独立董事关于2020年年度董事会相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737380.PDF 
 
-宁波银行 有1条新公告 
+隆基股份:国信证券股份有限公司关于隆基股份2020年度募集资金存放与使用专项核查报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737379.PDF 
 
-宁波银行:宁波银行股份有限公司关于举行2020年年度报告网上说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209724249.PDF 
+隆基股份:隆基股份2020年度募集资金存放与使用情况专项报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737378.PDF 
 
-智飞生物 有26条新公告 
+隆基股份:隆基股份2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737377.PDF 
 
-智飞生物:重庆智飞生物制品股份有限公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-20/1209726288.PDF 
+隆基股份:隆基股份2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737376.PDF 
 
-智飞生物:2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726287.PDF 
+隆基股份:隆基股份监事会关于2020年年度会议相关事项的意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737375.PDF 
 
-智飞生物:2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726285.PDF 
+隆基股份:隆基股份第四届监事会2020年年度会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737374.PDF 
 
-智飞生物:2020年度社会责任报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726284.PDF 
+隆基股份:隆基股份第四届董事会2020年年度会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737373.PDF 
 
-智飞生物:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726283.PDF 
+隆基股份:隆基股份2020年审计委员会履职报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737372.PDF 
 
-智飞生物:独立董事章新蓉女士2020年度述职报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726281.PDF 
+隆基股份:隆基股份2020年内部控制审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737371.PDF 
 
-智飞生物:独立董事袁林女士2020年度述职报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726280.PDF 
+隆基股份:隆基股份2020年度募集资金存放与实际使用情况专项报告及鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737370.PDF 
 
-智飞生物:独立董事刘保奎先生2020年度述职报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726279.PDF 
+隆基股份:隆基股份2020年可持续发展报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737369.PDF 
 
-智飞生物:独立董事邓纲先生2020年度述职报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726278.PDF 
+隆基股份:隆基股份2020年内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737368.PDF 
 
-智飞生物:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726277.PDF 
+隆基股份:隆基股份2020年度独立董事述职报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737367.PDF 
 
-智飞生物:2020年年度财务决算报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726276.PDF 
+隆基股份:隆基股份2020年控股股东及其他关联方占用资金情况专项报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737366.PDF 
 
-智飞生物:2020年年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726275.PDF 
+隆基股份:隆基股份2020年年度财务报表及审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737365.PDF 
 
-智飞生物:2020年度非经营性资金占用及其他关联资金往来的专项说明 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726274.PDF 
+隆基股份:隆基股份独立董事关于2020年年度董事会相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737364.PDF 
 
-智飞生物:2020年度内部控制鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726273.PDF 
+隆基股份:隆基股份2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737363.PDF 
 
-智飞生物:2020年度内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726272.PDF 
+隆基股份:隆基股份关于签订重大采购合同的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737362.PDF 
 
-智飞生物:关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726271.PDF 
+泰格医药 有1条新公告 
 
-智飞生物:关于修改公司章程的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726270.PDF 
+泰格医药:关于召开2020年度股东大会、2021年第一次A股类别股东会议及2021年第一次H股类别股东会议的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737215.PDF 
 
-智飞生物:独立董事关于第四届董事会第十九次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726269.PDF 
+恒力石化 有1条新公告 
 
-智飞生物:关于举行2020年度业绩网上说明会公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726268.PDF 
-
-智飞生物:关于续聘公司2021年度审计机构的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726267.PDF 
-
-智飞生物:关于公司2021年向银行申请授信额度的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726266.PDF 
-
-智飞生物:关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726265.PDF 
-
-智飞生物:关于2020年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726264.PDF 
-
-智飞生物:一季报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726263.PDF 
-
-智飞生物:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726262.PDF 
-
-智飞生物:年报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209726261.PDF 
-
-用友网络 有4条新公告 
-
-用友网络:北京市天元律师事务所关于用友网络科技股份有限公司回购注销部分已授出限制性股票的法律意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209727188.PDF 
-
-用友网络:北京中银律师事务所关于用友网络科技股份有限公司回购注销部分限制性股票事项的法律意见 http://static.cninfo.com.cn/finalpage/2021-04-20/1209727184.PDF 
-
-用友网络:北京市高朋律师事务所关于用友网络科技股份有限公司回购注销部分限制性股票相关事宜的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-20/1209727180.PDF 
-
-用友网络:用友网络股权激励限制性股票回购注销实施公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209727176.PDF 
-
-云南白药 有1条新公告 
-
-云南白药:关于公司2020年股票期权激励计划股票期权（预留部分）授予完成的公告 http://static.cninfo.com.cn/finalpage/2021-04-20/1209722578.PDF 
+恒力石化:恒力石化关于2020年度网络业绩说明会召开情况的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209736562.PDF 
 
