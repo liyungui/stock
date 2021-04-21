@@ -1,262 +1,312 @@
-中国平安 有2条新公告 
+要约收购 有2条新公告 
 
-中国平安:平安银行股份有限公司2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738447.PDF 
+天药股份:天津天药药业股份有限公司关于津沪深生物医药科技有限公司要约收购公司股份之第三次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756031.PDF 
 
-中国平安:中国平安关于披露平安银行2021年第一季度报告的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738442.PDF 
+中新药业:中新药业关于津沪深生物医药科技有限公司要约收购公司股份之第三次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209755935.PDF 
 
-华宇软件 有33条新公告 
+科顺股份 有60条新公告 
 
-华宇软件:关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739183.PDF 
+科顺股份:科顺股份2020年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759110.PDF 
 
-华宇软件:民生证券股份有限公司关于北京华宇软件股份有限公司2020年度内部控制评价报告的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739182.PDF 
+科顺股份:年报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759109.PDF 
 
-华宇软件:2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739181.PDF 
+科顺股份:科顺股份独立董事关于公司第二届董事会第三十四次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759108.PDF 
 
-华宇软件:2020年度董事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739179.PDF 
+科顺股份:2020年度财务决算报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759107.PDF 
 
-华宇软件:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739178.PDF 
+科顺股份:科顺股份2020年度内部控制的鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759106.PDF 
 
-华宇软件:2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739176.PDF 
+科顺股份:科顺股份2020年度募集资金年度存放与使用情况鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759105.PDF 
 
-华宇软件:关于2021年度公司董事、监事、高管薪酬方案的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739175.PDF 
+科顺股份:科顺股份2020年度非经营性资金占用及其他关联资金往来情况的专项审计说明 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759104.PDF 
 
-华宇软件:公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739174.PDF 
+科顺股份:关于科顺股份2020年股权激励计划预留权益授予的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759103.PDF 
 
-华宇软件:民生证券股份有限公司关于北京华宇软件股份有限公司持续督导2020年度跟踪报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739173.PDF 
+科顺股份:关于科顺股份2018年及2020年股权激励计划回购注销的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759102.PDF 
 
-华宇软件:民生证券股份有限公司关于北京华宇软件股份有限公司2020年度募集资金存放与使用情况的专项核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739172.PDF 
+科顺股份:关于向激励对象授予预留限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759101.PDF 
 
-华宇软件:民生证券股份有限公司关于北京华宇软件股份有限公司预计2021年度日常关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739171.PDF 
+科顺股份:关于减少注册资本及通知债权人的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759100.PDF 
 
-华宇软件:2020年度内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739170.PDF 
+科顺股份:关于计提资产减值准备的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759099.PDF 
 
-华宇软件:2020年度募集资金存放与使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739169.PDF 
+科顺股份:2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759098.PDF 
 
-华宇软件:募集资金存放与使用情况鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739168.PDF 
+科顺股份:独立董事关于公司第二届董事会第三十四次会议相关事项事前审查意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759097.PDF 
 
-华宇软件:控股股东及其他关联方资金占用情况的专项说明 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739167.PDF 
+科顺股份:2020年度内部控制自我评价报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759096.PDF 
 
-华宇软件:北京市奋迅律师事务所关于北京华宇软件股份有限公司2018年股票期权激励计划注销部分股票期权的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739166.PDF 
+科顺股份:2020年度监事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759095.PDF 
 
-华宇软件:关于注销2018年股票期权激励计划部分已授予股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739165.PDF 
+科顺股份:2020年度董事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759094.PDF 
 
-华宇软件:关于公司及全资子公司向银行申请综合授信提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739164.PDF 
+科顺股份:国元证券股份有限公司关于公司2020年度内部控制自我评价报告的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759093.PDF 
 
-华宇软件:2021年度日常关联交易预计公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739163.PDF 
+科顺股份:国元证券股份有限公司关于公司2020年度跟踪报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759092.PDF 
 
-华宇软件:关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739162.PDF 
+科顺股份:国元证券股份有限公司关于公司2020年度定期现场检查报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759091.PDF 
 
-华宇软件:关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739161.PDF 
+科顺股份:国元证券股份有限公司关于公司2020年度募集资金年度存放与使用情况的专项核查意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759090.PDF 
 
-华宇软件:2020年度监事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739160.PDF 
+科顺股份:国元证券股份有限公司关于公司2020年度日常关联交易确认及2021年度日常关联交易预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759089.PDF 
 
-华宇软件:独立董事2020年度述职报告（朱恒源） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739159.PDF 
+科顺股份:关于参加独立董事培训并取得独立董事资格证书的承诺函（张学军） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759088.PDF 
 
-华宇软件:独立董事2020年度述职报告（肖星） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739158.PDF 
+科顺股份:关于参加独立董事培训并取得独立董事资格证书的承诺函(解云川) http://static.cninfo.com.cn/finalpage/2021-04-22/1209759087.PDF 
 
-华宇软件:独立董事2020年度述职报告（罗婷） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739157.PDF 
+科顺股份:关于参加独立董事培训并取得独立董事资格证书的承诺函（曾德民） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759086.PDF 
 
-华宇软件:独立董事2020年度述职报告（甘培忠） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739156.PDF 
+科顺股份:公司章程(2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759085.PDF 
 
-华宇软件:独立董事对相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739155.PDF 
+科顺股份:独立董事提名人声明（解云川） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759084.PDF 
 
-华宇软件:独立董事对相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739154.PDF 
+科顺股份:独立董事提名人声明（曾德民） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759083.PDF 
 
-华宇软件:一季报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739153.PDF 
+科顺股份:独立董事提名人声明 (张学军） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759082.PDF 
 
-华宇软件:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739152.PDF 
+科顺股份:独立董事提名人声明 (谭有超） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759081.PDF 
 
-华宇软件:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739151.PDF 
+科顺股份:独立董事候选人声明（解云川） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759080.PDF 
 
-华宇软件:2020年年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739150.PDF 
+科顺股份:独立董事候选人声明（曾德民） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759079.PDF 
 
-华宇软件:年报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739149.PDF 
+科顺股份:独立董事提名人声明(张学军） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759078.PDF 
 
-海康威视 有1条新公告 
+科顺股份:独立董事候选人声明 (谭有超) http://static.cninfo.com.cn/finalpage/2021-04-22/1209759077.PDF 
 
-海康威视:董事会2020年年度工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739015.PDF 
+科顺股份:独立董事2020年度述职报告（朱冬青） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759076.PDF 
+
+科顺股份:独立董事2020年度述职报告（孙蔓莉） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759075.PDF 
+
+科顺股份:独立董事2020年度述职报告（瞿培华） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759074.PDF 
+
+科顺股份:独立董事2020年度述职报告（郭磊明） http://static.cninfo.com.cn/finalpage/2021-04-22/1209759073.PDF 
+
+科顺股份:《公司章程》修订对照表 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759072.PDF 
+
+科顺股份:关于拟向银行申请综合授信额度并由关联方提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759071.PDF 
+
+科顺股份:2021年日常性关联交易预计的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759070.PDF 
+
+科顺股份:关于2020年度向特定对象发行股票募集资金使用完成及账户注销的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759069.PDF 
+
+科顺股份:关于召开2020年年度股东大会的通知公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759068.PDF 
+
+科顺股份:2021年第一季度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759067.PDF 
+
+科顺股份:关于举行2020年度网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759066.PDF 
+
+科顺股份:监事会关于2020年限制性股票激励计划预留部分激励对象名单核查意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759065.PDF 
+
+科顺股份:关于2020年限制性股票激励计划预留部分授予对象名单 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759064.PDF 
+
+科顺股份:关于注销部分股票期权及回购注销部分限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759063.PDF 
+
+科顺股份:关于选举第三届监事会职工代表监事的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759062.PDF 
+
+科顺股份:关于监事会换届选举的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759061.PDF 
+
+科顺股份:关于董事会换届选举的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759060.PDF 
+
+科顺股份:关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759059.PDF 
+
+科顺股份:关于2020年度利润分配及资本公积金转增股本预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759058.PDF 
+
+科顺股份:2020年度募集资金存放与使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759057.PDF 
+
+科顺股份:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759056.PDF 
+
+科顺股份:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759055.PDF 
+
+科顺股份:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759054.PDF 
+
+科顺股份:一季报披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759053.PDF 
+
+科顺股份:2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759052.PDF 
+
+科顺股份:2020年社会责任报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759051.PDF 
+
+金域医学 有1条新公告 
+
+金域医学:广州金域医学检验集团股份有限公司关于召开2020年度业绩暨现金分红说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756464.PDF 
+
+伊利股份 有1条新公告 
+
+伊利股份:内蒙古伊利实业集团股份有限公司关于召开2020年度暨2021年第一季度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756578.PDF 
+
+安琪酵母 有1条新公告 
+
+安琪酵母:安琪酵母2020年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756355.PDF 
+
+瀚蓝环境 有2条新公告 
+
+瀚蓝环境:关于实施“瀚蓝转债”赎回暨摘牌的第六次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756359.PDF 
+
+瀚蓝环境:2021年度第三期超短期融资券发行结果公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756358.PDF 
 
 恒瑞医药 有2条新公告 
 
-恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737328.PDF 
+恒瑞医药:恒瑞医药关于公司药品通过仿制药一致性评价的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756925.PDF 
 
-恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737326.PDF 
+恒瑞医药:恒瑞医药关于公司药品通过仿制药一致性评价的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756924.PDF 
 
-平安银行 有4条新公告 
+万科A 有1条新公告 
 
-平安银行:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738015.PDF 
+万科A:关于股东参与转融通证券出借业务的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209759041.PDF 
 
-平安银行:2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738014.PDF 
+中国中免 有25条新公告 
 
-平安银行:一季报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738013.PDF 
+中国中免:中国旅游集团中免股份有限公司2020年度独立董事述职报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757604.PDF 
 
-平安银行:一季报监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738012.PDF 
+中国中免:关于中国旅游集团中免股份有限公司2020年度非经营性资金占用及其他关联资金往来情况的专项说明 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757603.PDF 
 
-东方财富 有1条新公告 
+中国中免:中国旅游集团中免股份有限公司2020年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757602.PDF 
 
-东方财富:东方财富信息股份有限公司关于子公司东方财富证券股份有限公司2021年第一期短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739596.PDF 
+中国中免:中国旅游集团中免股份有限公司独立董事关于对外担保情况的专项说明及独立意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757601.PDF 
 
-长江电力 有1条新公告 
+中国中免:中国旅游集团中免股份有限公司2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757599.PDF 
 
-长江电力:长江电力关于召开2020年度和2021年第一季度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209736694.PDF 
+中国中免:中国旅游集团中免股份有限公司2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757598.PDF 
 
-立讯精密 有43条新公告 
+中国中免:中国旅游集团中免股份有限公司关于2020年度计提存货跌价准备的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757596.PDF 
 
-立讯精密:关于公司2021年度日常关联交易预计公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739770.PDF 
+中国中免:关于授权公司管理层启动公司发行境外上市外资股（H股）并在香港联合交易所有限公司上市相关筹备工作的提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757595.PDF 
 
-立讯精密:监事会对公司2020年度内部控制自我评价报告的审核意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739769.PDF 
+中国中免:中国旅游集团中免股份有限公司独立董事关于聘任高级管理人员的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757593.PDF 
 
-立讯精密:监事会对公司《2020年年度报告及年度报告摘要》的审核意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739768.PDF 
+中国中免:中国旅游集团中免股份有限公司第四届董事会第十二次会议（通讯方式）决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757591.PDF 
 
-立讯精密:2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739767.PDF 
+中国中免:中国旅游集团中免股份有限公司2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757590.PDF 
 
-立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司内部控制规则落实自查表的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739766.PDF 
+中国中免:中国旅游集团中免股份有限公司2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757589.PDF 
 
-立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司2020年度内部控制的自我评价报告的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739765.PDF 
+中国中免:中国旅游集团中免股份有限公司关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757588.PDF 
 
-立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司2020年度募集资金存放与使用情况的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739764.PDF 
+中国中免:中国旅游集团中免股份有限公司2020年年度利润分配预案公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757586.PDF 
 
-立讯精密:2020年度董事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739763.PDF 
+中国中免:中国旅游集团中免股份有限公司关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757585.PDF 
 
-立讯精密:关于职工代表大会选举产生第五届监事会职工代表监事的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739762.PDF 
+中国中免:中国旅游集团中免股份有限公司关于2021年度担保计划的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757584.PDF 
 
-立讯精密:关于募集资金使用完毕并注销募集资金专户的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739761.PDF 
+中国中免:对中国旅游集团中免股份有限公司募集资金2020年度存放与使用情况专项报告的鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757583.PDF 
 
-立讯精密:2020年度监事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739760.PDF 
+中国中免:中信建投证券股份有限公司关于中国旅游集团中免股份有限公司2020年度募集资金存放与使用情况的专项核查报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757582.PDF 
 
-立讯精密:关于控股子公司增资其全资子公司的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739759.PDF 
+中国中免:中国旅游集团中免股份有限公司关于2020年度募集资金存放与实际使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757581.PDF 
 
-立讯精密:关于公司为境外全资子公司提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739758.PDF 
+中国中免:中国旅游集团中免股份有限公司独立董事关于第四届董事会第十一次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757580.PDF 
 
-立讯精密:关于公司向银行申请综合授信额度的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739757.PDF 
+中国中免:中国旅游集团中免股份有限公司第四届董事会第十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757579.PDF 
 
-立讯精密:独立董事关于续聘会计师事务所的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739756.PDF 
+中国中免:中国旅游集团中免股份有限公司董事会审计委员会2020年度履职情况报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757578.PDF 
 
-立讯精密:关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739755.PDF 
+中国中免:中国旅游集团中免股份有限公司2020年度内控审计报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757577.PDF 
 
-立讯精密:总经理工作细则（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739754.PDF 
+中国中免:中国旅游集团中免股份有限公司2020年度内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757576.PDF 
 
-立讯精密:对外投资管理办法（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739753.PDF 
+中国中免:中国旅游集团中免股份有限公司第四届监事会第四会议（现场结合通讯方式）决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757575.PDF 
 
-立讯精密:公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739752.PDF 
+通威股份 有2条新公告 
 
-立讯精密:关于修改《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739751.PDF 
+通威股份:通威股份有限公司关于归还暂时补充流动资金的闲置募集资金的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757332.PDF 
 
-立讯精密:独立董事提名人声明（三） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739750.PDF 
+通威股份:通威股份有限公司关于控股股东股份质押的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757331.PDF 
 
-立讯精密:独立董事提名人声明（二） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739749.PDF 
+千禾味业 有11条新公告 
 
-立讯精密:独立董事提名人声明（一） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739748.PDF 
+千禾味业:千禾味业2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757379.PDF 
 
-立讯精密:独立董事候选人声明（张英） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739747.PDF 
+千禾味业:千禾味业2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757378.PDF 
 
-立讯精密:独立董事候选人声明（宋宇红） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739746.PDF 
+千禾味业: 千禾味业关于使用闲置自有资金购买理财产品及部分理财产品到期收回的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757377.PDF 
 
-立讯精密:独立董事候选人声明（刘中华） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739745.PDF 
+千禾味业:千禾味业独立董事关于第三届董事会第二十六次会议有关议案的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757376.PDF 
 
-立讯精密:独立董事对担保等事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739744.PDF 
+千禾味业:独立董事提名人声明(车振明) http://static.cninfo.com.cn/finalpage/2021-04-22/1209757375.PDF 
 
-立讯精密:2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739743.PDF 
+千禾味业:独立董事候选人声明(车振明) http://static.cninfo.com.cn/finalpage/2021-04-22/1209757374.PDF 
 
-立讯精密:独立董事年度述职报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739742.PDF 
+千禾味业:千禾味业关于公司第四届董事会独立董事候选人变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757373.PDF 
 
-立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司2021年度日常关联交易预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739741.PDF 
+千禾味业:千禾味业2021年第一季度经营数据公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757372.PDF 
 
-立讯精密:独立董事关于2021年度日常关联交易预计的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739740.PDF 
+千禾味业:千禾味业关于2020年年度股东大会部分议案取消并增加临时提案的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757371.PDF 
 
-立讯精密:关于2020年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739739.PDF 
+千禾味业:千禾味业第三届董事会第二十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757370.PDF 
 
-立讯精密:年度关联方资金占用专项审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739738.PDF 
+千禾味业:千禾味业第三届监事会第二十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757369.PDF 
 
-立讯精密:独立董事2020年度述职报告（林一飞） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739737.PDF 
+隆基股份 有1条新公告 
 
-立讯精密:独立董事2020年度述职报告（张英） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739736.PDF 
+隆基股份:国信证券股份有限公司关于隆基绿能科技股份有限公司2020年度持续督导年度报告书 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756065.PDF 
 
-立讯精密:年度募集资金使用鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739735.PDF 
+歌尔股份 有10条新公告 
 
-立讯精密:年度募集资金使用情况专项说明 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739734.PDF 
+歌尔股份:关于分拆所属子公司歌尔微电子股份有限公司至创业板上市的预案 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758066.PDF 
 
-立讯精密:内部控制鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739733.PDF 
+歌尔股份:董事会关于本次上市公司分拆子公司上市董事会决议日前股票价格波动是否达到《关于规范上市公司信息披露及相关各方行为的通知》第五条相关标准的说明 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758065.PDF 
 
-立讯精密:内部控制自我评价报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739732.PDF 
+歌尔股份:独立董事事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758064.PDF 
 
-立讯精密:社会责任报告（随年报报送） http://static.cninfo.com.cn/finalpage/2021-04-21/1209739731.PDF 
+歌尔股份:独立董事独立意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758063.PDF 
 
-立讯精密:2020年年度审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739730.PDF 
+歌尔股份:关于分拆子公司上市的一般风险提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758062.PDF 
 
-立讯精密:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739729.PDF 
+歌尔股份:2021年半年度业绩预告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758061.PDF 
 
-立讯精密:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209739728.PDF 
+歌尔股份:一季报监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758060.PDF 
 
-药明康德 有1条新公告 
+歌尔股份:一季报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758059.PDF 
 
-药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737703.PDF 
+歌尔股份:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758058.PDF 
 
-万华化学 有1条新公告 
+歌尔股份:2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758057.PDF 
 
-万华化学:万华化学2021年第五期超短期融资券发行结果公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209736560.PDF 
+三安光电 有1条新公告 
 
-三一重工 有1条新公告 
+三安光电:三安光电股份有限公司关于控股股东部分股份质押及解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756926.PDF 
 
-三一重工:三一重工股份有限公司2020年年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-04-21/1209738212.PDF 
+韦尔股份 有1条新公告 
 
-隆基股份 有25条新公告 
+韦尔股份:关于控股股东部分股权质押的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756127.PDF 
 
-隆基股份:隆基股份2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737386.PDF 
+双汇发展 有2条新公告 
 
-隆基股份:隆基股份公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-21/1209737385.PDF 
+双汇发展:关于河南双汇投资发展股份有限公司2020年年度股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758712.PDF 
 
-隆基股份:隆基股份关于变更注册资本及修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737384.PDF 
+双汇发展:2020年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209758711.PDF 
 
-隆基股份:隆基股份关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737383.PDF 
+闻泰科技 有1条新公告 
 
-隆基股份:隆基股份关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737382.PDF 
+闻泰科技:关于收购广州得尔塔影像技术有限公司100%股权及相关经营性资产的进展公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209756176.PDF 
 
-隆基股份:隆基股份2020年度利润分配及资本公积金转增股本预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737381.PDF 
+云南白药 有1条新公告 
 
-隆基股份:隆基股份独立董事关于2020年年度董事会相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737380.PDF 
+云南白药:关于公司2020年股票期权激励计划预留权益部分失效的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209755889.PDF 
 
-隆基股份:国信证券股份有限公司关于隆基股份2020年度募集资金存放与使用专项核查报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737379.PDF 
+汇顶科技 有2条新公告 
 
-隆基股份:隆基股份2020年度募集资金存放与使用情况专项报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737378.PDF 
+汇顶科技:关于召开2020年度业绩及利润分配说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209755945.PDF 
 
-隆基股份:隆基股份2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737377.PDF 
+汇顶科技:关于诉讼进展暨收到撤诉裁定的公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209755944.PDF 
 
-隆基股份:隆基股份2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737376.PDF 
+恒力石化 有9条新公告 
 
-隆基股份:隆基股份监事会关于2020年年度会议相关事项的意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737375.PDF 
+恒力石化:恒力石化2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757572.PDF 
 
-隆基股份:隆基股份第四届监事会2020年年度会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737374.PDF 
+恒力石化:恒力石化2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757571.PDF 
 
-隆基股份:隆基股份第四届董事会2020年年度会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737373.PDF 
+恒力石化:恒力石化第八届监事会第十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757570.PDF 
 
-隆基股份:隆基股份2020年审计委员会履职报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737372.PDF 
+恒力石化:西南证券股份有限公司关于恒力石化股份有限公司发行股份购买资产并募集配套资金暨关联交易之业绩承诺实现情况及减值测试情况的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757569.PDF 
 
-隆基股份:隆基股份2020年内部控制审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737371.PDF 
+恒力石化:中汇会计师事务所（特殊普通合伙）关于恒力石化股份有限公司重大资产重组标的资产减值测试报告的专项审核说明 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757568.PDF 
 
-隆基股份:隆基股份2020年度募集资金存放与实际使用情况专项报告及鉴证报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737370.PDF 
+恒力石化:恒力石化重大资产重组标的资产2020年末减值测试报告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757567.PDF 
 
-隆基股份:隆基股份2020年可持续发展报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737369.PDF 
+恒力石化:恒力石化2021年第一季度主要经营数据公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757566.PDF 
 
-隆基股份:隆基股份2020年内部控制评价报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737368.PDF 
+恒力石化:恒力石化独立董事关于公司第八届董事会第十八次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757565.PDF 
 
-隆基股份:隆基股份2020年度独立董事述职报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737367.PDF 
-
-隆基股份:隆基股份2020年控股股东及其他关联方占用资金情况专项报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737366.PDF 
-
-隆基股份:隆基股份2020年年度财务报表及审计报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737365.PDF 
-
-隆基股份:隆基股份独立董事关于2020年年度董事会相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737364.PDF 
-
-隆基股份:隆基股份2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737363.PDF 
-
-隆基股份:隆基股份关于签订重大采购合同的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737362.PDF 
-
-泰格医药 有1条新公告 
-
-泰格医药:关于召开2020年度股东大会、2021年第一次A股类别股东会议及2021年第一次H股类别股东会议的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209737215.PDF 
-
-恒力石化 有1条新公告 
-
-恒力石化:恒力石化关于2020年度网络业绩说明会召开情况的公告 http://static.cninfo.com.cn/finalpage/2021-04-21/1209736562.PDF 
+恒力石化:恒力石化第八届董事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-22/1209757564.PDF 
 
