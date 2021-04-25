@@ -1,186 +1,58 @@
-要约收购 有5条新公告 
+并购重组 有23条新公告 
 
-北部湾港:万和证券股份有限公司关于广西北部湾国际港务集团有限公司豁免要约收购北部湾港股份有限公司的2020年年度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209795110.PDF 
+三雄极光:广发证券股份有限公司关于广东三雄极光照明股份有限公司首次公开发行股票并在创业板上市之保荐总结报告书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209799981.PDF 
 
-水井坊:北京市海问律师事务所关于收购人免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792062.PDF 
+太龙照明:天风证券股份有限公司关于太龙（福建）商业照明股份有限公司首次公开发行股票并在创业板上市之持续督导保荐总结报告书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209796610.PDF 
 
-标准股份:中信证券股份有限公司关于陕西鼓风机（集团）有限公司免于发出要约收购西安标准工业股份有限公司之2020年度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209790707.PDF 
+国瑞科技:海通证券股份有限公司关于常熟市国瑞科技股份有限公司首次公开发行股票并在创业板上市之保荐总结报告书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209796040.PDF 
 
-太极股份:中信建投证券股份有限公司关于中电太极（集团）有限公司豁免要约收购太极计算机股份有限公司的持续督导意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209789460.PDF 
+蕾奥规划:首次公开发行股票并在创业板上市网上定价发行摇号中签结果公告 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794333.PDF 
 
-城发环境:中原证券股份有限公司关于河南省财政厅豁免要约收购城发环境股份有限公司的2020年度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788088.PDF 
+津荣天宇:首次公开发行股票并在创业板上市网上摇号中签结果公告 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794316.PDF 
 
-并购重组 有1条新公告 
+苏文电能:首次公开发行股票并在创业板上市之上市公告书提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794299.PDF 
 
-强生控股:强生控股关于收到中国证监会并购重组委审核公司重大资产置换及发行股份购买资产并募集配套资金暨关联交易事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209787116.PDF 
+苏文电能:首次公开发行股票并在创业板上市之上市公告书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794298.PDF 
 
-德赛电池 有2条新公告 
+苏文电能:中信证券股份有限公司关于苏文电能科技股份有限公司首次公开发行股票并在创业板上市之上市保荐书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794297.PDF 
 
-德赛电池:2020年年度股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-24/1209791555.PDF 
+中红医疗:首次公开发行股票并在创业板上市之上市公告书提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794266.PDF 
 
-德赛电池:2020年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209791554.PDF 
+中红医疗:首次公开发行股票并在创业板上市之上市公告书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794265.PDF 
 
-伊利股份 有1条新公告 
+中红医疗:海通证券股份有限公司关于公司首次公开发行股票并在创业板上市之上市保荐书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794264.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于2020年度第二十九期超短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788479.PDF 
+中红医疗:北京德恒律师事务所关于公司首次公开发行的股票在深圳证券交易所创业板上市的法律意见 http://static.cninfo.com.cn/finalpage/2021-04-26/1209794263.PDF 
 
-潍柴动力 有1条新公告 
+万马科技:海通证券股份有限公司关于万马科技股份有限公司首次公开发行股票并在创业板上市之保荐总结报告书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209793374.PDF 
 
-潍柴动力:潍柴动力股份有限公司关于非公开发行A股股票获得中国证监会核准批复的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788305.PDF 
+科翔股份:申港证券股份有限公司关于广东科翔电子科技股份有限公司全资子公司通过开设募集资金保证金账户开具银行承兑汇票支付募集资金投资项目款项的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-26/1209792286.PDF 
 
-海螺水泥 有1条新公告 
+科翔股份:关于全资子公司通过开设募集资金保证金账户开具银行承兑汇票支付募集资金投资项目款项的公告 http://static.cninfo.com.cn/finalpage/2021-04-26/1209792285.PDF 
 
-海螺水泥:关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-24/1209790745.PDF 
+沪宁股份:国泰君安证券股份有限公司关于杭州沪宁电梯部件股份有限公司首次公开发行股票并在创业板上市保荐总结报告书 http://static.cninfo.com.cn/finalpage/2021-04-26/1209789293.PDF 
 
-招商银行 有2条新公告 
+大洋生物:浙江大洋生物科技集团股份有限公司信息披露管理办法（2021年4月修订） http://static.cninfo.com.cn/finalpage/2021-04-26/1209787585.PDF 
 
-招商银行:招商银行股份有限公司2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788444.PDF 
+大洋生物:浙江大洋生物科技集团股份有限公司内幕信息知情人登记管理制度（2021年4月修订） http://static.cninfo.com.cn/finalpage/2021-04-26/1209787583.PDF 
 
-招商银行:招商银行股份有限公司2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788443.PDF 
+大洋生物:浙江大洋生物科技集团股份有限公司金融衍生品交易业务管理制度 http://static.cninfo.com.cn/finalpage/2021-04-26/1209787581.PDF 
 
-海康威视 有1条新公告 
+大洋生物:财通证券股份有限公司关于浙江大洋生物科技集团股份有限公司2021年度日常关联交易预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-26/1209787575.PDF 
 
-海康威视:2020年年度报告（英文版） http://static.cninfo.com.cn/finalpage/2021-04-24/1209788796.PDF 
+大洋生物:财通证券股份有限公司关于浙江大洋生物科技集团股份有限公司2021年度开展金融衍生品交易业务的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-26/1209787574.PDF 
 
-瀚蓝环境 有1条新公告 
+大洋生物:财通证券股份有限公司关于浙江大洋生物科技集团股份有限公司2020年内部控制自我评价报告的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-26/1209787573.PDF 
 
-瀚蓝环境:关于实施“瀚蓝转债”赎回暨摘牌的第八次提示性公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788811.PDF 
+大洋生物:财通证券股份有限公司关于浙江大洋生物科技集团股份有限公司2020年度募集资金存放与使用情况专项报告的核查意见 http://static.cninfo.com.cn/finalpage/2021-04-26/1209787572.PDF 
 
-TCL科技 有1条新公告 
+恒瑞医药 有2条新公告 
 
-TCL科技:关于收购Moka International Limited 100%股权的进展公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209790348.PDF 
+恒瑞医药:恒瑞医药关于公司产品拟纳入优先审评程序的公告 http://static.cninfo.com.cn/finalpage/2021-04-26/1209800025.PDF 
 
-旗滨集团 有1条新公告 
+恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-04-26/1209800024.PDF 
 
-旗滨集团:旗滨集团关于召开2020年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788788.PDF 
+乐普医疗 有1条新公告 
 
-长江电力 有1条新公告 
-
-长江电力: 长江电力关于董事辞职的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209787169.PDF 
-
-海天味业 有3条新公告 
-
-海天味业:海天味业公司章程（2021年4月） http://static.cninfo.com.cn/finalpage/2021-04-24/1209790797.PDF 
-
-海天味业:关于佛山市海天调味食品股份有限公司2020年年度股东大会之法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-24/1209790796.PDF 
-
-海天味业:海天味业2020年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209790795.PDF 
-
-三一重工 有2条新公告 
-
-三一重工:湖南启元律师事务所关于三一重工股份有限公司2020年年度股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-04-24/1209791604.PDF 
-
-三一重工:三一重工股份有限公司2020年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209791603.PDF 
-
-顺丰控股 有1条新公告 
-
-顺丰控股:非公开发行A股股票申请文件反馈意见的回复 http://static.cninfo.com.cn/finalpage/2021-04-24/1209793181.PDF 
-
-片仔癀 有36条新公告 
-
-片仔癀:漳州片仔癀药业股份有限公司关于2020年度日常关联交易情况及2021年度日常关联交易预计的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792480.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司董事会审计委员会履职情况的说明文件 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792479.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司独立董事关于聘任会计师事务所的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792478.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司独立董事关于聘任会计师事务所的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792477.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792476.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2021年第一季度报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792475.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司关于召开2020年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792474.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年度董事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792473.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年度财务决算及2021年度财务预算报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792472.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司社会责任制度 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792471.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司内部审计制度 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792470.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司对外担保管理制度 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792469.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司第六届董事会第三十七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792468.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792467.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年度审计委员会履职情况报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792466.PDF 
-
-片仔癀:华兴会计师事务所（特殊普通合伙）关于漳州片仔癀药业股份有限公司内部控制审计报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792465.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年度社会责任报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792464.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年度内部控制自我评价报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792463.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年度独立董事述职报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792462.PDF 
-
-片仔癀:华兴会计师事务所（特殊普通合伙）关于漳州片仔癀药业股份有限公司非经常性资金占用及其他关联资金往来的专项说明 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792461.PDF 
-
-片仔癀:华兴会计师事务所（特殊普通合伙）关于漳州片仔癀药业股份有限公司审计报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792460.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年年度报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792459.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792458.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司关于召开2020年年度业绩网络说明会的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792457.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年度监事会工作报告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792456.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司2021年第一季度主要经营数据公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792455.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司章程（2021年4月修订） http://static.cninfo.com.cn/finalpage/2021-04-24/1209792454.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司关于修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792453.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司独立董事关于2020年度利润分配预案的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792452.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司关于2020年年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792451.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司独立董事关于会计政策变更的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792450.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司关于会计政策变更的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792449.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司董事会审计委员会关于2020年度日常关联交易情况及2021年度日常关联交易预计的意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792448.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司独立董事关于2020年度日常关联交易情况及2021年度日常关联交易预计的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792447.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司独立董事关于2020年度日常关联交易情况及2021年度日常关联交易预计的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792446.PDF 
-
-片仔癀:漳州片仔癀药业股份有限公司第六届监事会第十七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209792445.PDF 
-
-宁波银行 有7条新公告 
-
-宁波银行:宁波银行股份有限公司2020年年度股东大会会议材料 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788732.PDF 
-
-宁波银行:宁波银行股份有限公司关于召开2020年年度股东大会通知的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209788731.PDF 
-
-宁波银行:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-24/1209786800.PDF 
-
-宁波银行:2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-24/1209786797.PDF 
-
-宁波银行:宁波银行股份有限公司独立董事关于公司衍生品投资及风险控制情况的独立意见 http://static.cninfo.com.cn/finalpage/2021-04-24/1209786796.PDF 
-
-宁波银行:一季报监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209786795.PDF 
-
-宁波银行:一季报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209786794.PDF 
-
-长春高新 有3条新公告 
-
-长春高新:关于控股子公司重组人生长激素注射液新适应症补充申请获得批准的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209787882.PDF 
-
-长春高新:2021年第一季度报告全文 http://static.cninfo.com.cn/finalpage/2021-04-24/1209787881.PDF 
-
-长春高新:2021年第一季度报告正文 http://static.cninfo.com.cn/finalpage/2021-04-24/1209787879.PDF 
-
-用友网络 有2条新公告 
-
-用友网络:用友网络科技股份有限公司非公开发行股票申请文件反馈意见之回复报告（修订稿） http://static.cninfo.com.cn/finalpage/2021-04-24/1209791714.PDF 
-
-用友网络:用友网络关于非公开发行股票申请文件反馈意见回复（修订稿）的公告 http://static.cninfo.com.cn/finalpage/2021-04-24/1209791713.PDF 
-
-兆易创新 有1条新公告 
-
-兆易创新:中金公司关于北京兆易创新科技股份有限公司2020年度持续督导年度报告书 http://static.cninfo.com.cn/finalpage/2021-04-24/1209786915.PDF 
+乐普医疗:关于签订募集资金专户储存三方监管协议的公告 http://static.cninfo.com.cn/finalpage/2021-04-26/1209799937.PDF 
 
