@@ -1,100 +1,118 @@
-要约收购 有9条新公告 
+要约收购 有3条新公告 
 
-辽宁能源:中信建投证券关于辽能产控集团免于以要约方式收购辽宁能源的2020年度持续督导意见 20210430 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892835.PDF 
+浙商中拓:关于浙江省交通投资集团有限公司要约收购公司股份的第二次提示性公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935441.PDF 
 
-辽宁能源:中信建投证券关于辽能产控集团免于以要约方式收购辽宁能源的2021年一季度持续督导意见 20210430 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892834.PDF 
+赣锋锂业:平安证券关于关于江西赣锋锂业股份有限公司对Bacanora公司进行要约收购涉及矿业权投资暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935078.PDF 
 
-惠而浦:关于广东格兰仕家用电器制造有限公司要约收购股份结果暨股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892630.PDF 
+赣锋锂业:关于全资子公司上海赣锋对Bacanora公司进行要约收购涉及矿业权投资暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935076.PDF 
 
-惠而浦:关于广东格兰仕家用电器制造有限公司要约收购公司股份的清算公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892629.PDF 
+并购重组 有1条新公告 
 
-天药股份:天津天药药业股份有限公司关于津沪深生物医药科技有限公司要约收购公司股份的清算公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892491.PDF 
+宝信软件:关于收到中国证监会并购重组审核委员会审核公司发行股份及支付现金购买资产暨关联交易事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935156.PDF 
 
-天药股份:天津天药药业股份有限公司关于津沪深生物医药科技有限公司要约收购公司股份结果暨股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892490.PDF 
+科顺股份 有1条新公告 
 
-中新药业:中新药业关于津沪深生物医药科技有限公司要约收购公司股份的清算公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891661.PDF 
+科顺股份:关于召开2020年年度股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209934552.PDF 
 
-中新药业:中新药业关于津沪深生物医药科技有限公司要约收购公司股份结果暨股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891660.PDF 
+德赛电池 有1条新公告 
 
-江苏有线:华泰联合证券关于国金网络豁免要约收购江苏有线2020年年度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-05-06/1209890118.PDF 
+德赛电池:关于召开2021年第一次临时股东大会的提示性通知 http://static.cninfo.com.cn/finalpage/2021-05-07/1209933336.PDF 
 
-并购重组 有7条新公告 
+格力电器 有1条新公告 
 
-元隆雅图:上市公司并购重组财务顾问专业意见附表第3号——发行股份购买资产 http://static.cninfo.com.cn/finalpage/2021-05-06/1209893018.PDF 
-
-元隆雅图:上市公司并购重组财务顾问专业意见附表第3号——发行股份购买资产 http://static.cninfo.com.cn/finalpage/2021-05-06/1209893017.PDF 
-
-强生控股:国泰君安证券股份有限公司关于上海强生控股股份有限公司重大资产置换及发行股份购买资产并募集配套资金暨关联交易之并购重组委审核意见回复之核查意见 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891603.PDF 
-
-强生控股:上海强生控股股份有限公司关于落实并购重组委会后意见的回复 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891602.PDF 
-
-强生控股:上海东洲资产评估有限公司关于上海强生控股股份有限公司重大资产置换及发行股份购买资产并募集配套资金暨关联交易之并购重组委审核意见回复 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891600.PDF 
-
-强生控股:天职国际会计师事务所关于上海强生控股股份有限公司重大资产置换及发行股份购买资产并募集配套资金暨关联交易之并购重组委审核意见回复（天职业字[2021]27788号） http://static.cninfo.com.cn/finalpage/2021-05-06/1209891599.PDF 
-
-强生控股:强生控股关于中国证券监督管理委员会上市公司并购重组审核委员会审核意见的回复公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891596.PDF 
-
-伊利股份 有1条新公告 
-
-伊利股份:内蒙古伊利实业集团股份有限公司关于2021年度第十九、二十期超短期融资券发行结果的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209889693.PDF 
-
-中国平安 有5条新公告 
-
-中国平安:中国平安关于2021年度长期服务计划完成股票购买的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891888.PDF 
-
-中国平安:中国平安关于参与方正集团重整进展的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891887.PDF 
-
-中国平安:中国平安关于2021年度核心人员持股计划完成股票购买的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891886.PDF 
-
-中国平安:中国平安独立董事的独立意见 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891885.PDF 
-
-中国平安:中国平安第十二届董事会第三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891884.PDF 
-
-福耀玻璃 有2条新公告 
-
-福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209927326.PDF 
-
-福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209927325.PDF 
+格力电器:关于股份回购进展情况的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935012.PDF 
 
 中顺洁柔 有1条新公告 
 
-中顺洁柔:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209926600.PDF 
+中顺洁柔:关于全资子公司获得高新技术企业证书（续发）的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935496.PDF 
 
-瀚蓝环境 有1条新公告 
+恒瑞医药 有2条新公告 
 
-瀚蓝环境:关于控股股东的一致行动人之间股份转让的提示性公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891877.PDF 
+恒瑞医药:恒瑞医药关于公司药品通过仿制药一致性评价的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209934252.PDF 
 
-恒瑞医药 有3条新公告 
+恒瑞医药:恒瑞医药关于公司药品通过仿制药一致性评价的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209934251.PDF 
 
-恒瑞医药:恒瑞医药关于获得药品注册证书的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892326.PDF 
+平安银行 有1条新公告 
 
-恒瑞医药:恒瑞医药关于子公司获得药品注册证书的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892324.PDF 
+平安银行:平安银行股份有限公司2020年年度权益分派实施公告 2021-05-07 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935489.PDF 
 
-恒瑞医药:恒瑞医药关于股东及其一致行动人持股比例变动超过1%的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892323.PDF 
+万科A 有2条新公告 
 
-TCL科技 有2条新公告 
+万科A:关于按照《香港上市规则》公布2021年4月证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935981.PDF 
 
-TCL 科技:2020年年度股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892307.PDF 
+万科A:关于股东A股股份质押的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935980.PDF 
 
-TCL 科技:2020年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209892306.PDF 
+中兴通讯 有1条新公告 
 
-长江电力 有1条新公告 
+中兴通讯:关于按照《香港上市规则》公布2021年4月份证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935390.PDF 
 
-长江电力:长江电力2020年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-05-06/1209889694.PDF 
+牧原股份 有2条新公告 
 
-东方雨虹 有1条新公告 
+牧原股份:关于举行2020年度网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935445.PDF 
 
-东方雨虹:关于召开2020年年度股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209889177.PDF 
+牧原股份:2021年4月份生猪销售简报 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935444.PDF 
 
-昭衍新药 有1条新公告 
+立讯精密 有1条新公告 
 
-昭衍新药:昭衍新药第三届监事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209891254.PDF 
+立讯精密:2020年年度报告（英文版） http://static.cninfo.com.cn/finalpage/2021-05-07/1209934803.PDF 
+
+药明康德 有3条新公告 
+
+药明康德:关于无锡药明康德新药开发股份有限公司2018年限制性股票与股票期权激励计划首次授予的限制性股票第二个解除限售期解除限售相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-05-07/1209934753.PDF 
+
+药明康德:关于2018年限制性股票与股票期权激励计划首次授予限制性股票第二个解除限售期解除限售条件成就暨股份上市的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209934752.PDF 
+
+药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209934366.PDF 
+
+三一重工 有1条新公告 
+
+三一重工:三一重工股份有限公司关于变更2020年度暨2021年第一季度业绩说明会召开时间的提示性公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209933490.PDF 
+
+歌尔股份 有1条新公告 
+
+歌尔股份:关于召开2020年度股东大会会议的提示性公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209934724.PDF 
 
 三安光电 有1条新公告 
 
-三安光电:三安光电股份有限公司为全资子公司提供担保公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209890741.PDF 
+三安光电:三安光电股份有限公司全资子公司获得补贴款的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209933554.PDF 
 
-韦尔股份 有1条新公告 
+汇顶科技 有19条新公告 
 
-韦尔股份:关于收到中国证监会上海证监局警示函的公告 http://static.cninfo.com.cn/finalpage/2021-05-06/1209889765.PDF 
+汇顶科技:2021年第一期股票期权激励计划（草案）摘要公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935468.PDF 
+
+汇顶科技:独立董事对关于第三届董事会第三十一次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935467.PDF 
+
+汇顶科技:第三届董事会第三十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935466.PDF 
+
+汇顶科技:关于定期报告的更正公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935465.PDF 
+
+汇顶科技:2021年第二次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935464.PDF 
+
+汇顶科技:关于召开2021年第二次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935463.PDF 
+
+汇顶科技:关于独立董事公开征集投票权的公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935462.PDF 
+
+汇顶科技:第三届监事会第二十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935461.PDF 
+
+汇顶科技:监事会关于公司2021年第一期员工持股计划相关事项的核查意见 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935460.PDF 
+
+汇顶科技:深圳市汇顶科技股份有限公司2021年第一期员工持股计划管理办法 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935459.PDF 
+
+汇顶科技:深圳市汇顶科技股份有限公司2021年第一期员工持股计划（草案）摘要 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935458.PDF 
+
+汇顶科技:深圳市汇顶科技股份有限公司2021年第一期员工持股计划（草案） http://static.cninfo.com.cn/finalpage/2021-05-07/1209935457.PDF 
+
+汇顶科技:关于以集中竞价交易方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935456.PDF 
+
+汇顶科技:2021年第一期股票期权激励计划首次授予部分激励对象名单 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935455.PDF 
+
+汇顶科技:深圳市汇顶科技股份有限公司2021年第一期股票期权激励计划（草案） http://static.cninfo.com.cn/finalpage/2021-05-07/1209935454.PDF 
+
+汇顶科技:深圳市汇顶科技股份有限公司2021年第一期股票期权激励计划实施考核管理办法 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935453.PDF 
+
+汇顶科技:监事会关于公司2021年第一期股票期权激励计划相关事项的核查意见 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935452.PDF 
+
+汇顶科技:国浩律师（深圳）事务所关于深圳市汇顶科技股份有限公司2021年第一期股票期权激励计划之法律意见书 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935451.PDF 
+
+汇顶科技:2021年第一次职工代表大会会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-07/1209935450.PDF 
 
