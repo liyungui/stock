@@ -1,118 +1,88 @@
-德赛电池 有1条新公告 
+天味食品 有2条新公告 
 
-德赛电池:关于筹划重大事项的进展公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085710.PDF 
+天味食品:东兴证券股份有限公司关于四川天味食品集团股份有限公司非公开发行限售股上市流通的专项核查意见 http://static.cninfo.com.cn/finalpage/2021-05-27/1210104297.PDF 
 
-海螺水泥 有1条新公告 
+天味食品:关于非公开发行限售股上市流通的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210104296.PDF 
 
-海螺水泥:关于按期收回委托理财本金及收益的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086068.PDF 
+邮储银行 有3条新公告 
 
-招商银行 有2条新公告 
+邮储银行:中国邮政储蓄银行股份有限公司董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103663.PDF 
 
-招商银行:招商银行股份有限公司2020年度股东大会文件 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086745.PDF 
+邮储银行:中国邮政储蓄银行股份有限公司境外优先股股息派发实施公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103662.PDF 
 
-招商银行:招商银行股份有限公司2020年度股东大会通知 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086544.PDF 
+邮储银行:中国邮政储蓄银行股份有限公司关于日常关联交易的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103661.PDF 
 
-恒瑞医药 有3条新公告 
+潍柴动力 有8条新公告 
 
-恒瑞医药:恒瑞医药关于子公司通过药品GMP符合性检查的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085769.PDF 
+潍柴动力:潍柴动力股份有限公司非公开发行A股股票发行情况报告书暨上市公告书 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105973.PDF 
 
-恒瑞医药:恒瑞医药关于公司药品通过仿制药一致性评价的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085768.PDF 
+潍柴动力:潍柴动力股份有限公司非公开发行A股股票发行情况报告书暨上市公告书（摘要） http://static.cninfo.com.cn/finalpage/2021-05-27/1210105972.PDF 
 
-恒瑞医药:恒瑞医药关于获得药品注册证书的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085767.PDF 
+潍柴动力:中信证券股份有限公司关于潍柴动力股份有限公司非公开发行A股股票之上市保荐书 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105971.PDF 
 
-万科A 有5条新公告 
+潍柴动力:潍柴动力股份有限公司关于董事、监事和高级管理人员持股情况变动的报告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105970.PDF 
 
-万科A:董事会议事规则修订对照表 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087595.PDF 
+潍柴动力:潍柴动力股份有限公司关于非公开发行股票相关承诺的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105969.PDF 
 
-万科A:股东大会议事规则修订对照表 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087594.PDF 
+潍柴动力:北京市通商律师事务所关于潍柴动力股份有限公司非公开发行A股股票发行过程及认购对象合规性之法律意见书 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105968.PDF 
 
-万科A:公司章程修订对照表 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087593.PDF 
+潍柴动力:中信证券股份有限公司、华泰联合证券有限责任公司、中泰证券股份有限公司关于潍柴动力股份有限公司非公开发行A股股票发行过程和认购对象合规性的报告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105967.PDF 
 
-万科A:独立董事关于第十九届董事会第八次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087592.PDF 
+潍柴动力:潍柴动力股份有限公司非公开发行人民币普通股（A股）股票认购资金验证报告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105966.PDF 
 
-万科A:第十九届董事会第八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087591.PDF 
+格力电器 有4条新公告 
 
-中兴通讯 有3条新公告 
+格力电器:独立董事关于回购部分社会公众股份方案的独立意见 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105846.PDF 
 
-中兴通讯:关于按照《香港上市规则》公布2020年度股东大会通函及表决代理委托书的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086195.PDF 
+格力电器:关于回购部分社会公众股份的报告书 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105845.PDF 
 
-中兴通讯:关于召开2020年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086194.PDF 
+格力电器:关于回购部分社会公众股份方案的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105844.PDF 
 
-中兴通讯:第八届董事会第三十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086193.PDF 
+格力电器:第十一届董事会第二十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105843.PDF 
 
-立讯精密 有1条新公告 
+华宇软件 有1条新公告 
 
-立讯精密:立讯精密工业股份有限公司公开发行可转换公司债券2021年跟踪评级报告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086032.PDF 
+华宇软件:2020年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210105501.PDF 
 
-美的集团 有3条新公告 
+伟星新材 有2条新公告 
 
-美的集团:关于对2017年、2018年、2019年和2020年限制性股票激励计划部分激励股份回购注销完成的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086886.PDF 
+伟星新材:关于第二大股东减持比例达到1%暨减持数量过半的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210104327.PDF 
 
-美的集团:美的集团2020年度社会责任报告（英文版） http://static.cninfo.com.cn/finalpage/2021-05-26/1210086885.PDF 
+伟星新材:2020年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210104240.PDF 
 
-美的集团:2020年年度利润分配实施公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086884.PDF 
+万华化学 有1条新公告 
 
-顺丰控股 有1条新公告 
+万华化学:万华化学2021年6月份中国地区MDI价格公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210104292.PDF 
 
-顺丰控股:关于持股5%以上股东非公开发行可交换公司债券进入换股期的提示性公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087135.PDF 
+中信建投 有4条新公告 
 
-泰格医药 有1条新公告 
+中信建投:关于选举公司董事的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103914.PDF 
 
-泰格医药:权益分派实施的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087308.PDF 
+中信建投:关于修订公司章程的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103913.PDF 
 
-闻泰科技 有3条新公告 
+中信建投:独立董事关于第二届董事会第三十二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103912.PDF 
 
-闻泰科技:关于2020年股票期权与限制性股票激励计划预留权益失效的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087231.PDF 
+中信建投:第二届董事会第三十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103911.PDF 
 
-闻泰科技:关于收购广州得尔塔影像技术有限公司100%股权及相关经营性资产的进展公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087230.PDF 
+闻泰科技 有1条新公告 
 
-闻泰科技:股东集中竞价减持股份结果公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087229.PDF 
+闻泰科技:闻泰科技2020年年度股东大会会议材料 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103464.PDF 
 
-金山办公 有3条新公告 
+汇顶科技 有8条新公告 
 
-金山办公:金山办公2020年年度股东大会会议材料 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086976.PDF 
+汇顶科技:关于对全资孙公司提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103482.PDF 
 
-金山办公:金山办公5%以上股东减持股份结果公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086867.PDF 
+汇顶科技:2021年第一期股票期权激励计划首次授予部分激励对象名单（调整后） http://static.cninfo.com.cn/finalpage/2021-05-27/1210103481.PDF 
 
-金山办公:金山办公关于部分子公司法定代表人变更的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210086866.PDF 
+汇顶科技:国浩律师（深圳）事务所关于深圳市汇顶科技股份有限公司2021年第一期股票期权激励计划调整及授予事项之法律意见书 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103480.PDF 
 
-长春高新 有1条新公告 
+汇顶科技:独立董事关于公司第三届董事会第三十二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103479.PDF 
 
-长春高新:关于部分董事、监事增持公司股份的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085732.PDF 
+汇顶科技:关于向激励对象首次授予2021年第一期股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103478.PDF 
 
-云南白药 有2条新公告 
+汇顶科技:关于调整2021年第一期股票期权激励计划首次授予相关事项的公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103477.PDF 
 
-云南白药:2020年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087047.PDF 
+汇顶科技:第三届监事会第二十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103476.PDF 
 
-云南白药:云南白药2020年度股东大会的法律意见 http://static.cninfo.com.cn/finalpage/2021-05-26/1210087046.PDF 
-
-兆易创新 有12条新公告 
-
-兆易创新:兆易创新关于调整2018年股票期权与限制性股票激励计划相关事项的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085807.PDF 
-
-兆易创新:兆易创新2021年第三次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085806.PDF 
-
-兆易创新:兆易创新关于召开2021年第三次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085805.PDF 
-
-兆易创新:兆易创新公司章程 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085804.PDF 
-
-兆易创新:兆易创新关于变更公司注册地址暨修改《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085803.PDF 
-
-兆易创新:兆易创新关于董事辞职及拟增补公司董事的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085802.PDF 
-
-兆易创新:兆易创新第三届监事会第二十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085801.PDF 
-
-兆易创新:兆易创新独立董事关于第三届董事会第二十五次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085800.PDF 
-
-兆易创新:兆易创新关于完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085799.PDF 
-
-兆易创新:兆易创新关于调整2020年股票期权与限制性股票激励计划相关事项的公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085798.PDF 
-
-兆易创新:北京市中伦（深圳）律师事务所关于兆易创新2018年及2020年股票期权与限制性股票激励计划调整相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085797.PDF 
-
-兆易创新:兆易创新第三届董事会第二十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085796.PDF 
-
-永辉超市 有1条新公告 
-
-永辉超市:永辉超市股份有限公司关于公司董事长增持比例达到1%的进展公告 http://static.cninfo.com.cn/finalpage/2021-05-26/1210085833.PDF 
+汇顶科技:第三届董事会第三十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-05-27/1210103475.PDF 
 
