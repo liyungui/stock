@@ -1,108 +1,62 @@
-并购重组 有1条新公告 
+格力电器 有7条新公告 
 
-中国天楹:上市公司并购重组财务顾问专业意见附表第2号—重大资产重组 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293453.PDF 
+格力电器:珠海格力电器股份有限公司第一期员工持股计划（草案） http://static.cninfo.com.cn/finalpage/2021-06-21/1210294131.PDF 
 
-华域汽车 有5条新公告 
+格力电器:董事会关于公司第一期员工持股计划（草案）符合《关于上市公司实施员工持股计划试点的指导意见》相关规定的说明 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294130.PDF 
 
-华域汽车:华域汽车关于2020年年度股东大会增加临时提案的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292366.PDF 
+格力电器:监事会关于公司第一期员工持股计划事项的审核意见 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294129.PDF 
 
-华域汽车:华域汽车第九届监事会第十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292365.PDF 
+格力电器:第十一届监事会第十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294128.PDF 
 
-华域汽车:华域汽车独立董事候选人声明 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292362.PDF 
+格力电器:独立董事关于第十一届董事会第二十二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294127.PDF 
 
-华域汽车:华域汽车独立董事提名人声明 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292361.PDF 
+格力电器:第十一届董事会第二十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294126.PDF 
 
-华域汽车:华域汽车第九届董事会第二十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292359.PDF 
+格力电器:职工代表大会决议公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294125.PDF 
 
-伊利股份 有2条新公告 
+中兴通讯 有1条新公告 
 
-伊利股份:内蒙古伊利实业集团股份有限公司2021年第一次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292424.PDF 
+中兴通讯:关于发行股份购买资产并募集配套资金事项实施进展情况的公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294086.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于参股公司China Youran Dairy Group Limited在香港联交所挂牌上市的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292423.PDF 
+TCL科技 有16条新公告 
 
-海螺水泥 有1条新公告 
+TCL科技:北京市嘉源律师事务所关于TCL科技集团股份有限公司回购股份用途调整的法律意见书 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294156.PDF 
 
-海螺水泥:关于按期收回委托理财本金及收益的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292311.PDF 
+TCL科技:北京市嘉源律师事务所关于TCL科技集团股份有限公司2019年限制性股票激励计划暨第二期全球创享计划第二期解除限售及回购注销部分限制性股票的法律意见书 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294155.PDF 
 
-招商银行 有1条新公告 
+TCL科技:关于第七届监事会第七次会议相关审议事项的核查意见 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294154.PDF 
 
-招商银行:招商银行股份有限公司支付H股股东2020年度末期股息的安排 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292171.PDF 
+TCL科技:独立董事对第七届董事会第九次会议相关审议事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294153.PDF 
 
-中顺洁柔 有5条新公告 
+TCL科技:TCL科技集团股份有限公司2021-2023年员工持股计划（第一期）管理办法 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294152.PDF 
 
-中顺洁柔:第五届监事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210290821.PDF 
+TCL科技:TCL科技集团股份有限公司2021-2023年员工持股计划（第一期）（草案） http://static.cninfo.com.cn/finalpage/2021-06-21/1210294151.PDF 
 
-中顺洁柔:第五届董事会第六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210290820.PDF 
+TCL科技:第七届董事会第九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294150.PDF 
 
-中顺洁柔:关于中顺洁柔纸业股份有限公司2018年股票期权与限制性股票激励计划调整股票期权行权价格的法律意见书 http://static.cninfo.com.cn/finalpage/2021-06-19/1210290819.PDF 
+TCL科技:关于回购部分社会公众股份的回购报告书（修订稿） http://static.cninfo.com.cn/finalpage/2021-06-21/1210294149.PDF 
 
-中顺洁柔:独立董事关于调整股票期权行权价格的独立意见 http://static.cninfo.com.cn/finalpage/2021-06-19/1210290818.PDF 
+TCL科技:北京市嘉源律师事务所关于TCL科技集团股份有限公司2021-2023年员工持股计划（第一期）的法律意见书 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294148.PDF 
 
-中顺洁柔:关于调整《2018年股票期权与限制性股票激励计划》股票期权行权价格的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210290817.PDF 
+TCL科技:关于2019年限制性股票激励计划暨第二期全球创享计划第二个解除限售期解除限售条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294147.PDF 
 
-五粮液 有1条新公告 
+TCL科技:关于召开2021年第三次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294146.PDF 
 
-五 粮 液:关于宜宾五粮液股份有限公司2020年度股东大会之法律意见书 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293391.PDF 
+TCL科技:关于回购注销2019年限制性股票激励计划部分激励对象已获授但尚未解除限售的限制性股票并调整回购价格的公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294145.PDF 
 
-药明康德 有2条新公告 
+TCL科技:关于2021年回购部分社会公众股份的回购报告书 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294144.PDF 
 
-药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292962.PDF 
+TCL科技:第七届监事会第七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294143.PDF 
 
-药明康德:关于参股公司Lyell Immunopharma,Inc.在美国纳斯达克证券交易所挂牌上市的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292809.PDF 
+TCL科技:2019年限制性股票激励计划第二个解除限售期满足解锁条件的激励对象名单 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294142.PDF 
 
-三一重工 有5条新公告 
+TCL科技:2019年限制性股票激励计划2021年回购注销的激励对象名单和数量 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294141.PDF 
 
-三一重工:三一重工股份有限公司公司章程（2021年6月18日） http://static.cninfo.com.cn/finalpage/2021-06-19/1210293004.PDF 
+贵州茅台 有1条新公告 
 
-三一重工:三一重工股份有限公司2021年员工持股计划摘要 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293003.PDF 
-
-三一重工:三一重工股份有限公司2021年员工持股计划 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293002.PDF 
-
-三一重工:湖南启元律师事务所关于三一重工股份有限公司2021年第一次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293001.PDF 
-
-三一重工:三一重工股份有限公司2021年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293000.PDF 
+贵州茅台:贵州茅台2020年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210293974.PDF 
 
 顺丰控股 有1条新公告 
 
-顺丰控股:2021年5月快递服务业务经营简报 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292609.PDF 
-
-片仔癀 有1条新公告 
-
-片仔癀:漳州片仔癀药业股份有限公司2020年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292277.PDF 
-
-昭衍新药 有2条新公告 
-
-昭衍新药:昭衍新药2020年年度股东大会、2021年第一次A股类别股东大会及2021年第一次H股类别股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293590.PDF 
-
-昭衍新药:昭衍新药2020年年度股东大会、2021年第一次A股类别股东大会及2021年第一次H股类别股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293589.PDF 
-
-通威股份 有1条新公告 
-
-通威股份:通威股份有限公司关于2020年度第一期中期票据付息公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292278.PDF 
-
-卫星石化 有1条新公告 
-
-卫星石化:关于提前归还用于暂时补充流动资金的闲置募集资金的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210291882.PDF 
-
-歌尔股份 有1条新公告 
-
-歌尔股份:关于实际控制人部分股份质押及解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210291999.PDF 
-
-乐普医疗 有2条新公告 
-
-乐普医疗:关于可转债乐普转2转股价格调整的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292892.PDF 
-
-乐普医疗:2020年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210292891.PDF 
-
-宁波银行 有5条新公告 
-
-宁波银行:宁波银行股份有限公司关于诉讼事项终结的公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293511.PDF 
-
-宁波银行:关于宁波银行股份有限公司支付敏感信息安全管理的评估报告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293510.PDF 
-
-宁波银行:关于宁波银行股份有限公司信息科技重要项目管理的评估报告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293509.PDF 
-
-宁波银行:关于宁波银行股份有限公司关联交易管理情况的评估报告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293508.PDF 
-
-宁波银行:宁波银行股份有限公司第七届监事会第六次临时会议决议公告 http://static.cninfo.com.cn/finalpage/2021-06-19/1210293507.PDF 
+顺丰控股:关于接待机构投资者调研情况的公告 http://static.cninfo.com.cn/finalpage/2021-06-21/1210294104.PDF 
 
