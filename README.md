@@ -1,78 +1,70 @@
-并购重组 有1条新公告 
+伊利股份 有1条新公告 
 
-沙钢股份:关于中国证监会上市公司并购重组审核委员会工作会议安排的提示性公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385717.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于2021年度第二十二、二十三期超短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210396187.PDF 
 
-安琪酵母 有1条新公告 
+格力电器 有1条新公告 
 
-安琪酵母:安琪酵母关于子公司湖北宏裕新型包材股份有限公司首次公开发行股票并在创业板上市申请获深圳证券交易所受理的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384131.PDF 
+格力电器:关于股份回购进展情况的公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210398368.PDF 
 
-海康威视 有1条新公告 
+福耀玻璃 有1条新公告 
 
-海康威视:关于2016年限制性股票计划已授予但尚未解锁的限制性股票第三次、2018年限制性股票计划已授予但尚未解锁的限制性股票第一次回购注销完成的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384494.PDF 
-
-中顺洁柔 有1条新公告 
-
-中顺洁柔:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210383526.PDF 
-
-瀚蓝环境 有2条新公告 
-
-瀚蓝环境:2020年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385089.PDF 
-
-瀚蓝环境:2021年度第一期绿色中期票据发行情况公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385057.PDF 
-
-恒瑞医药 有1条新公告 
-
-恒瑞医药:恒瑞医药关于获得美国FDA临床试验资格的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210383255.PDF 
-
-平安银行 有1条新公告 
-
-平安银行:2021-019 平安银行股份有限公司关于非执行董事辞任的公告 2021-07-02 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384293.PDF 
-
-TCL科技 有1条新公告 
-
-TCL科技:关于2021年回购社会公众股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385182.PDF 
+福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210396753.PDF 
 
 牧原股份 有1条新公告 
 
-牧原股份:关于独立董事辞任的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385886.PDF 
+牧原股份:牧原食品股份有限公司关于独立董事因非本公司事项收到中国证券监督管理委员会浙江监管局《行政处罚及市场禁入事先告知书》的公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397321.PDF 
 
-旗滨集团 有1条新公告 
+立讯精密 有12条新公告 
 
-旗滨集团:旗滨集团2021年半年度业绩预增公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385170.PDF 
+立讯精密:2019年股票期权激励计划首次授予第二个行权期可行权激励对象名单 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397249.PDF 
+
+立讯精密:2019年股票期权激励计划首次授予人员名单（调整后） http://static.cninfo.com.cn/finalpage/2021-07-03/1210397248.PDF 
+
+立讯精密:2021年第二季度可转换公司债券转股情况公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397247.PDF 
+
+立讯精密:银行间市场债务融资工具信息披露管理制度 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397246.PDF 
+
+立讯精密:北京市天元（深圳）律师事务所关于立讯精密工业股份有限公司2019年股票期权激励计划调整行权价格、注销部分股票期权及首次授予第二个行权期行权条件成就的法律意见 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397245.PDF 
+
+立讯精密:北京市天元（深圳）律师事务所关于立讯精密工业股份有限公司2018年股票期权激励计划调整行权价格的法律意见 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397244.PDF 
+
+立讯精密:2019年股票期权激励计划首次授予注销股票期权数量及人员名单 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397243.PDF 
+
+立讯精密:关于2019年股票期权激励计划首次授予第二个行权期行权条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397242.PDF 
+
+立讯精密:关于调整2018年、2019年股票期权激励计划行权价格及注销2019年股票期权激励计划部分股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397241.PDF 
+
+立讯精密:独立董事关于相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397240.PDF 
+
+立讯精密:第五届监事会第二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397239.PDF 
+
+立讯精密:第五届董事会第二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210397238.PDF 
 
 药明康德 有2条新公告 
 
-药明康德:关于认购私募基金份额的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384950.PDF 
+药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210399287.PDF 
 
-药明康德:关于2019年限制性股票与股票期权激励计划首次授予股票期权2021年第二季度自主行权结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384949.PDF 
+药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210399286.PDF 
 
-美的集团 有1条新公告 
+东方雨虹 有3条新公告 
 
-美的集团:关于回购公司股份进展情况的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385681.PDF 
+东方雨虹:北京东方雨虹防水技术股份有限公司关于为下属公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210396338.PDF 
 
-三一重工 有2条新公告 
+东方雨虹:关于在张家港市大新镇投资设立全资子公司及建设绿色建材智能生产基地项目的对外投资公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210396337.PDF 
 
-三一重工:三一重工股份有限公司关于2021年员工持股计划完成股票非交易过户的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385208.PDF 
+东方雨虹:北京东方雨虹防水技术股份有限公司第七届董事会第三十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210396336.PDF 
 
-三一重工:三一重工股份有限公司期权自主行权结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210385207.PDF 
+卫星石化 有1条新公告 
 
-韦尔股份 有1条新公告 
+卫星石化:2021年半年度业绩预告的更正公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210399069.PDF 
 
-韦尔股份:关于2019年股票期权激励计划2021年第二季度自主行权结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210383508.PDF 
+宁波银行 有2条新公告 
 
-闻泰科技 有1条新公告 
+宁波银行:浙江波宁律师事务所关于宁波银行股份有限公司2021年第二次临时股东大会之法律意见书 http://static.cninfo.com.cn/finalpage/2021-07-03/1210398082.PDF 
 
-闻泰科技:关于职工代表监事辞职的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210383636.PDF 
+宁波银行:宁波银行股份有限公司2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210398081.PDF 
 
-永辉超市 有2条新公告 
+汇顶科技 有1条新公告 
 
-永辉超市:永辉超市股份有限公司关于公司董事长增持公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384429.PDF 
-
-永辉超市:永辉超市股份有限公司关于股东部分股份质押展期暨解质的公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384428.PDF 
-
-公牛集团 有2条新公告 
-
-公牛集团:公牛集团2021年半年度业绩预增公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384335.PDF 
-
-公牛集团:公牛集团关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-07-02/1210384334.PDF 
+汇顶科技:关于2018年股票期权激励计划首次授予部分、2019年股票期权与限制性股票激励计划股票期权2021年第二季度自主行权结果暨股份变动的公告 http://static.cninfo.com.cn/finalpage/2021-07-03/1210396190.PDF 
 
