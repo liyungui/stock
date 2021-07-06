@@ -224,7 +224,13 @@ def main():
             print(stock_name + ' 找不到匹配的 code')
 
     # obj.sendWX()
-    obj.writeFile();
+    obj.writeFile()
+
+
+def main2():
+    import math
+    for i in range(9, 35):
+        print(f'<dimen name="Pad_TextSize_{i}">{math.ceil(i * 1.1)}dp</dimen>')
 
 
 if __name__ == '__main__':
