@@ -1,66 +1,112 @@
-要约收购 有6条新公告 
+并购重组 有2条新公告 
 
-中国船舶:北京市嘉源律师事务所关于中国船舶集团有限公司收购中国船舶工业股份有限公司免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442709.PDF 
+东方盛虹:上市公司并购重组财务顾问专业意见附表第3号——发行股份购买资产 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455655.PDF 
 
-中国重工:北京市嘉源律师事务所关于中国船舶集团有限公司收购中国船舶重工股份有限公司免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442408.PDF 
+东方盛虹:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455654.PDF 
 
-中国海防:北京市嘉源律师事务所关于中国船舶集团有限公司收购中国船舶重工集团海洋防务与信息对抗股份有限公司免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442324.PDF 
+德赛电池 有1条新公告 
 
-中船防务:北京市嘉源律师事务所关于中国船舶集团有限公司收购中船海洋与防务装备股份有限公司免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442308.PDF 
+德赛电池:关于部分限制性股票回购注销完成的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210454425.PDF 
 
-中国动力:北京市嘉源律师事务所关于中国船舶集团有限公司收购中国船舶重工集团动力股份有限公司免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442278.PDF 
+招商银行 有1条新公告 
 
-中船科技:北京市嘉源律师事务所关于中国船舶集团有限公司收购中船科技股份有限公司免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442222.PDF 
+招商银行:招商银行股份有限公司第十一届监事会第十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455073.PDF 
 
-新城控股 有1条新公告 
+中顺洁柔 有1条新公告 
 
-新城控股:新城控股2021年6月及第二季度经营简报 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442366.PDF 
+中顺洁柔:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210453853.PDF 
 
-科顺股份 有1条新公告 
+恒瑞医药 有2条新公告 
 
-科顺股份:关于对外投资的自愿性信息披露公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442891.PDF 
+恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210454635.PDF 
 
-瀚蓝环境 有2条新公告 
+恒瑞医药:恒瑞医药关于公司董事、高管辞职的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210454634.PDF 
 
-瀚蓝环境:关于办理原NET系统流通股份持有人登记确认手续的提示公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442259.PDF 
+平安银行 有3条新公告 
 
-瀚蓝环境:2021年度第三期超短期融资券兑付公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442258.PDF 
+平安银行:平安银行股份有限公司独立董事独立意见 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455036.PDF 
+
+平安银行:平安银行股份有限公司关联交易公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455035.PDF 
+
+平安银行:平安银行股份有限公司董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455034.PDF 
+
+万科A 有1条新公告 
+
+万科A:万科企业股份有限公司2017年面向合格投资者公开发行公司债券（第一期）2021年付息公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210454017.PDF 
+
+中兴通讯 有1条新公告 
+
+中兴通讯:2021年半年度业绩预告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455200.PDF 
+
+TCL科技 有1条新公告 
+
+TCL科技:关于2021年非公开发行A股股票申请获得中国证监会受理的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455123.PDF 
+
+东方财富 有1条新公告 
+
+东方财富:东方财富信息股份有限公司2021年半年度业绩预告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210453593.PDF 
 
 长江电力 有1条新公告 
 
-长江电力:长江电力2020年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442333.PDF 
+长江电力:长江电力关于2021年度第一期超短期融资券发行情况公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210454759.PDF 
 
-万华化学 有1条新公告 
+东方雨虹 有1条新公告 
 
-万华化学:万华化学2021年半年度业绩预增公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442257.PDF 
+东方雨虹:2021年半年度业绩预告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455075.PDF 
 
-隆基股份 有8条新公告 
+通威股份 有1条新公告 
 
-隆基股份:隆基股份独立董事关于第四届董事会2021年第十一次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442360.PDF 
+通威股份:通威股份有限公司关于归还暂时补充流动资金的闲置募集资金的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210454670.PDF 
 
-隆基股份:隆基股份关于向员工持股平台转让控股子公司股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442359.PDF 
+生物股份 有1条新公告 
 
-隆基股份:隆基股份关于公司董事、高级管理人员拟通过员工持股计划持有控股子公司股权的公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442358.PDF 
+生物股份:金宇生物技术股份有限公司详式权益变动报告书 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455907.PDF 
 
-隆基股份:隆基股份独立董事关于第四届董事会2021年第十一次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442357.PDF 
+韦尔股份 有1条新公告 
 
-隆基股份:隆基股份独立董事关于第四届董事会2021年第十一次会议相关事项事前认可意见 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442356.PDF 
+韦尔股份:关于控股股东及其一致行动人减持公司可转换公司债券的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210454854.PDF 
 
-隆基股份:隆基股份关于拟与董事、高级管理人员共同投资成立合伙企业暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442355.PDF 
+兆易创新 有17条新公告 
 
-隆基股份:隆基股份第四届董事会2021年第十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442354.PDF 
+兆易创新:北京兆易创新科技股份有限公司2021年股票期权与限制性股票激励计划激励对象名单 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455867.PDF 
 
-隆基股份:隆基股份第四届监事会2021年第三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442353.PDF 
+兆易创新:北京兆易创新科技股份有限公司2021年股票期权与限制性股票激励计划实施考核管理办法 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455866.PDF 
 
-卫星石化 有1条新公告 
+兆易创新:上海荣正投资咨询股份有限公司关于北京兆易创新科技股份有限公司2021年股票期权与限制性股票激励计划（草案）之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455865.PDF 
 
-卫星石化:关于公司持股5%以上股东参与转融通证券出借业务的公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210441770.PDF 
+兆易创新:北京市中伦（深圳）律师事务所关于北京兆易创新科技股份有限公司2021年股票期权与限制性股票激励计划的法律意见书 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455864.PDF 
 
-中信建投 有1条新公告 
+兆易创新:兆易创新2021年股票期权与限制性股票激励计划（草案）摘要 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455863.PDF 
 
-中信建投:截至2021年6月30日止月份之股份發行人的證券變動月報表 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442362.PDF 
+兆易创新:兆易创新公司章程 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455862.PDF 
 
-金山办公 有1条新公告 
+兆易创新:兆易创新关于变更公司注册资本暨修改《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455861.PDF 
 
-金山办公:金山办公关于完成工商变更登记并换发营业执照的公告 http://static.cninfo.com.cn/finalpage/2021-07-09/1210442605.PDF 
+兆易创新:兆易创新关于增补公司第三届董事会专业委员会委员的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455860.PDF 
+
+兆易创新:兆易创新第三届监事会第二十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455859.PDF 
+
+兆易创新:兆易创新独立董事公开征集委托投票权报告书 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455858.PDF 
+
+兆易创新:兆易创新2021年第四次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455857.PDF 
+
+兆易创新:兆易创新关于召开2021年第四次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455856.PDF 
+
+兆易创新:兆易创新独立董事关于新增2021年度日常关联交易额度的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455855.PDF 
+
+兆易创新:兆易创新关于新增2021年度日常关联交易额度的公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455854.PDF 
+
+兆易创新:兆易创新独立董事关于第三届董事会第二十六次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455853.PDF 
+
+兆易创新:兆易创新第三届董事会第二十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455852.PDF 
+
+兆易创新:北京兆易创新科技股份有限公司2021年股票期权与限制性股票激励计划（草案） http://static.cninfo.com.cn/finalpage/2021-07-10/1210455851.PDF 
+
+公牛集团 有1条新公告 
+
+公牛集团:公牛集团关于使用部分闲置募集资金进行现金管理到期收回的进展公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210454833.PDF 
+
+深南电路 有1条新公告 
+
+深南电路:关于筹划非公开发行股票的提示性公告 http://static.cninfo.com.cn/finalpage/2021-07-10/1210455243.PDF 
 
