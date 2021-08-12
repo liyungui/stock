@@ -1,124 +1,160 @@
-要约收购 有2条新公告 
+并购重组 有3条新公告 
 
-鲁西化工:中银国际证券股份有限公司关于中化投资发展有限公司及其一致行动人免于以要约方式收购鲁西化工集团股份有限公司之2021年半年度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725222.PDF 
+江苏新能:江苏新能关于中国证监会上市公司并购重组审核委员会审核公司发行股份购买资产暨关联交易事项会议安排的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735750.PDF 
 
-模塑科技:关于协议转让的进展情况暨免于要约收购的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725185.PDF 
+王府井:关于换股吸收合并北京首商集团股份有限公司并募集配套资金暨关联交易事项获得中国证监会上市公司并购重组审核委员会审核通过暨公司股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735575.PDF 
 
-并购重组 有7条新公告 
+首商股份:北京首商集团股份有限公司关于王府井集团股份有限公司换股吸收合并公司并募集配套资金暨关联交易事项获得中国证监会上市公司并购重组审核委员会审核通过暨公司股票复牌的公告.docx http://static.cninfo.com.cn/finalpage/2021-08-13/1210734154.PDF 
 
-葛洲坝:中国葛洲坝集团股份有限公司关于中国能源建设股份有限公司换股吸收合并中国葛洲坝集团股份有限公司暨关联交易事项获得中国证监会上市公司并购重组审核委员会审核通过暨公司股票复牌的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726437.PDF 
+招商银行 有2条新公告 
 
-江苏新能:江苏新能关于收到中国证监会上市公司并购重组审核委员会审核公司发行股份购买资产暨关联交易事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726403.PDF 
+招商银行:招商银行股份有限公司日常关联交易公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735525.PDF 
 
-华电国际:关于收到中国证监会上市公司并购重组审核委员会审核公司发行股份及可转换公司债券购买资产事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726402.PDF 
+招商银行:招商银行股份有限公司第十一届董事会第二十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735524.PDF 
 
-中材国际: 中国中材国际工程股份有限公司关于收到中国证监会上市公司并购重组审核委员会审核公司发行股份及支付现金购买资产暨关联交易事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726359.PDF 
+瀚蓝环境 有5条新公告 
 
-洪城环境:上市公司并购重组财务顾问专业意见附表第3号——发行股份购买资产 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726208.PDF 
+瀚蓝环境:瀚蓝环境股份有限公司内幕信息知情人登记管理制度（2021年8月修订） http://static.cninfo.com.cn/finalpage/2021-08-13/1210735548.PDF 
 
-王府井:关于中国证监会上市公司并购重组审核委员会审核公司换股吸收合并北京首商集团股份有限公司并募集配套资金暨关联交易事项的停牌公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725895.PDF 
+瀚蓝环境:瀚蓝环境股份有限公司独立董事工作制度（2021年8月修订） http://static.cninfo.com.cn/finalpage/2021-08-13/1210735547.PDF 
 
-首商股份:北京首商集团股份有限公司关于中国证监会上市公司并购重组审核委员会审核王府井集团股份有限公司换股吸收合并北京首商集团股份有限公司并募集配套资金暨关联交易事项的停牌公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725849.PDF 
+瀚蓝环境:第十届董事会第十七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735546.PDF 
 
-邮储银行 有1条新公告 
+瀚蓝环境:瀚蓝环境股份有限公司2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735545.PDF 
 
-邮储银行:中国邮政储蓄银行股份有限公司关于获准发行二级资本债券的公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726133.PDF 
+瀚蓝环境:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735544.PDF 
 
-金龙鱼 有7条新公告 
+恒瑞医药 有1条新公告 
 
-金龙鱼:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725990.PDF 
+恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210733933.PDF 
 
-金龙鱼:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725989.PDF 
+药明康德 有9条新公告 
 
-金龙鱼:2021年半年度募集资金存放与使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725988.PDF 
+药明康德:第二届监事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735616.PDF 
 
-金龙鱼:关于使用闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725987.PDF 
+药明康德:独立董事关于公司第二届董事会第十九次会议审议的相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735615.PDF 
 
-金龙鱼:独立董事关于第一届董事会第三十二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725986.PDF 
+药明康德:第二届董事会第十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735614.PDF 
 
-金龙鱼:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725985.PDF 
+药明康德:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735613.PDF 
 
-金龙鱼:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725984.PDF 
+药明康德:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735612.PDF 
 
-伊利股份 有1条新公告 
+药明康德:华泰联合证券有限责任公司关于无锡药明康德新药开发股份有限公司关于部分A股非公开发行股票募投项目延期的核查意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735611.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于2021年度第二十六期超短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725329.PDF 
+药明康德:独立董事关于公司第二届董事会第十九次会议审议的相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735610.PDF 
 
-宋城演艺 有10条新公告 
+药明康德:关于部分A股非公开发行股票募投项目的延期公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735609.PDF 
 
-宋城演艺:子公司管理制度（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726934.PDF 
+药明康德:2021年半年度募集资金存放与实际使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735608.PDF 
 
-宋城演艺:关于召开2021年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726933.PDF 
+宁德时代 有17条新公告 
 
-宋城演艺:关联交易管理制度（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726932.PDF 
+宁德时代:向特定对象发行股票方案论证分析报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735808.PDF 
 
-宋城演艺:对外担保管理制度（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726931.PDF 
+宁德时代:前次募集资金使用情况专项报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735807.PDF 
 
-宋城演艺:公司章程（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726930.PDF 
+宁德时代:前次募集资金使用情况鉴证报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735806.PDF 
 
-宋城演艺:募集资金使用管理制度（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726929.PDF 
+宁德时代:内部控制鉴证报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735805.PDF 
 
-宋城演艺:股东大会议事规则（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726928.PDF 
+宁德时代:向特定对象发行股票预案 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735804.PDF 
 
-宋城演艺:董事会议事规则（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726927.PDF 
+宁德时代:关于召开公司2021年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735803.PDF 
 
-宋城演艺:章程修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726926.PDF 
+宁德时代:向特定对象发行股票募集资金使用可行性分析报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735802.PDF 
 
-宋城演艺:第七届董事会第十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726925.PDF 
+宁德时代:未来三年股东回报规划（2021年-2023年） http://static.cninfo.com.cn/finalpage/2021-08-13/1210735801.PDF 
 
-伟星新材 有5条新公告 
+宁德时代:独立董事关于公司第二届董事会第三十二次会议相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735800.PDF 
 
-伟星新材:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726436.PDF 
+宁德时代:独立董事关于公司第二届董事会第三十二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735799.PDF 
 
-伟星新材:独立董事关于控股股东及其他关联方占用公司资金、公司对外担保情况的专项说明和独立意见 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726435.PDF 
+宁德时代:关于本次向特定对象发行股票不存在直接或通过利益相关方向参与认购的投资者提供财务资助或补偿的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735798.PDF 
 
-伟星新材:半年报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726434.PDF 
+宁德时代:关于最近五年不存在被证券监管部门和交易所采取监管措施或处罚情况的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735797.PDF 
 
-伟星新材:2021年半年度财务报告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726433.PDF 
+宁德时代:控股股东、实际控制人、董事和高级管理人员关于向特定对象发行股票摊薄即期回报采取填补措施承诺的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735796.PDF 
 
-伟星新材:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726432.PDF 
+宁德时代:关于向特定对象发行股票摊薄即期回报的风险提示及填补措施的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735795.PDF 
 
-牧原股份 有14条新公告 
+宁德时代:关于向特定对象发行股票预案披露的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735794.PDF 
 
-牧原股份:公开发行可转换公司债券发行公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726902.PDF 
+宁德时代:第二届监事会第二十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735793.PDF 
 
-牧原股份:公开发行可转换公司债券募集说明书摘要 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726901.PDF 
+宁德时代:第二届董事会第三十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735792.PDF 
 
-牧原股份:公开发行可转换公司债券募集说明书 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726900.PDF 
+昭衍新药 有1条新公告 
 
-牧原股份:北京市康达律师事务所关于牧原食品股份有限公司公开发行可转换公司债券的补充法律意见书（四） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726899.PDF 
+昭衍新药:昭衍新药董事及一致行动人集中竞价减持股份计划公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734382.PDF 
 
-牧原股份:北京市康达律师事务所关于牧原食品股份有限公司公开发行可转换公司债券的补充法律意见书（三） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726898.PDF 
+韦尔股份 有2条新公告 
 
-牧原股份:北京市康达律师事务所关于牧原食品股份有限公司公开发行可转换公司债券的补充法律意见书（二) http://static.cninfo.com.cn/finalpage/2021-08-12/1210726897.PDF 
+韦尔股份:关于控股股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210733560.PDF 
 
-牧原股份:北京市康达律师事务所关于牧原食品股份有限公司公开发行可转换公司债券的补充法律意见书（一） http://static.cninfo.com.cn/finalpage/2021-08-12/1210726896.PDF 
+韦尔股份:关于“韦尔转债”回售的第三次提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210733559.PDF 
 
-牧原股份:北京市康达律师事务所关于牧原食品股份有限公司公开发行可转换公司债券的法律意见书 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726895.PDF 
+双汇发展 有28条新公告 
 
-牧原股份:招商证券股份有限公司关于牧原食品股份有限公司公开发行可转换公司债券并上市之发行保荐书 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726894.PDF 
+双汇发展:半年报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734098.PDF 
 
-牧原股份:牧原食品股份有限公司公开发行可转换公司债券信用评级报告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726893.PDF 
+双汇发展:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734097.PDF 
 
-牧原股份:第三届监事会第三十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726892.PDF 
+双汇发展:汇丰前海证券有限责任公司关于河南双汇投资发展股份有限公司使用闲置募集资金进行现金管理之核查报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734096.PDF 
 
-牧原股份:第三届董事会第四十次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726891.PDF 
+双汇发展:监事会议事规则（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734095.PDF 
 
-牧原股份:独立董事关于第三届董事会第四十次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726890.PDF 
+双汇发展:股东大会议事规则（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734094.PDF 
 
-牧原股份:公开发行可转换公司债券网上路演公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726889.PDF 
+双汇发展:公司章程（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734093.PDF 
 
-千禾味业 有1条新公告 
+双汇发展:董事会议事规则（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734092.PDF 
 
-千禾味业:千禾味业关于使用闲置自有资金购买理财产品的公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725341.PDF 
+双汇发展:《监事会议事规则》修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734091.PDF 
 
-隆基股份 有2条新公告 
+双汇发展:《股东大会议事规则》修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734090.PDF 
 
-隆基股份:隆基股份2021年第二次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726129.PDF 
+双汇发展:《公司章程》修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734089.PDF 
 
-隆基股份:隆基股份2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210726128.PDF 
+双汇发展:《董事会议事规则》修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734088.PDF 
 
-三安光电 有1条新公告 
+双汇发展:关于职工代表监事换届选举的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734087.PDF 
 
-三安光电:三安光电股份有限公司关于召开2021年第二次临时股东大会的提示公告 http://static.cninfo.com.cn/finalpage/2021-08-12/1210725317.PDF 
+双汇发展:独立董事提名人声明（尹效华） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734086.PDF 
+
+双汇发展:独立董事提名人声明（罗新建） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734085.PDF 
+
+双汇发展:独立董事提名人声明（刘东晓） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734084.PDF 
+
+双汇发展:独立董事提名人声明（杜海波） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734083.PDF 
+
+双汇发展:独立董事候选人声明（尹效华） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734082.PDF 
+
+双汇发展:独立董事候选人声明（罗新建） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734081.PDF 
+
+双汇发展:独立董事候选人声明（刘东晓） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734080.PDF 
+
+双汇发展:独立董事候选人声明（杜海波） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734079.PDF 
+
+双汇发展:关于召开2021年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734078.PDF 
+
+双汇发展:关于使用闲置募集资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734077.PDF 
+
+双汇发展:关于河南双汇集团财务有限公司2021年半年度风险持续评估报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734076.PDF 
+
+双汇发展:2021年半年度募集资金存放与实际使用情况专项报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734075.PDF 
+
+双汇发展:独立董事关于控股股东及其他关联方占用公司资金、公司对外担保情况的专项说明和独立意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734074.PDF 
+
+双汇发展:半年报监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734073.PDF 
+
+双汇发展:2021年半年度财务报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734072.PDF 
+
+双汇发展:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734071.PDF 
+
+公牛集团 有2条新公告 
+
+公牛集团:公牛集团股份有限公司关于召开2021年半年度网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734438.PDF 
+
+公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734437.PDF 
 
