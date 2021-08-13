@@ -1,160 +1,144 @@
-并购重组 有3条新公告 
+要约收购 有2条新公告 
 
-江苏新能:江苏新能关于中国证监会上市公司并购重组审核委员会审核公司发行股份购买资产暨关联交易事项会议安排的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735750.PDF 
+莱美药业:国海证券股份有限公司关于广西梧州中恒集团股份有限公司及其一致行动人南宁中恒同德医药产业投资基金合伙企业（有限合伙）、广西广投国宏健康产业基金合伙企业（有限合伙）免于发出要约收购重庆莱美药业股份有限公司之2021年半年度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747512.PDF 
 
-王府井:关于换股吸收合并北京首商集团股份有限公司并募集配套资金暨关联交易事项获得中国证监会上市公司并购重组审核委员会审核通过暨公司股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735575.PDF 
+百大集团:中信建投证券股份有限公司关于陈夏鑫要约收购百大集团股份有限公司之持续督导意见 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746763.PDF 
 
-首商股份:北京首商集团股份有限公司关于王府井集团股份有限公司换股吸收合并公司并募集配套资金暨关联交易事项获得中国证监会上市公司并购重组审核委员会审核通过暨公司股票复牌的公告.docx http://static.cninfo.com.cn/finalpage/2021-08-13/1210734154.PDF 
+并购重组 有2条新公告 
 
-招商银行 有2条新公告 
+华电国际:关于中国证监会上市公司并购重组审核委员会工作会议安排的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748603.PDF 
 
-招商银行:招商银行股份有限公司日常关联交易公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735525.PDF 
+中材国际:中国中材国际工程股份有限公司关于中国证监会上市公司并购重组审核委员会审核公司发行股份及支付现金购买资产暨关联交易事项会议安排的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747251.PDF 
 
-招商银行:招商银行股份有限公司第十一届董事会第二十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735524.PDF 
+伊利股份 有1条新公告 
 
-瀚蓝环境 有5条新公告 
+伊利股份:内蒙古伊利实业集团股份有限公司关于2021年度第二十七期超短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746953.PDF 
 
-瀚蓝环境:瀚蓝环境股份有限公司内幕信息知情人登记管理制度（2021年8月修订） http://static.cninfo.com.cn/finalpage/2021-08-13/1210735548.PDF 
+格力电器 有1条新公告 
 
-瀚蓝环境:瀚蓝环境股份有限公司独立董事工作制度（2021年8月修订） http://static.cninfo.com.cn/finalpage/2021-08-13/1210735547.PDF 
+格力电器:2020年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747699.PDF 
 
-瀚蓝环境:第十届董事会第十七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735546.PDF 
+海螺水泥 有1条新公告 
 
-瀚蓝环境:瀚蓝环境股份有限公司2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735545.PDF 
+海螺水泥:董事會會議通告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747100.PDF 
 
-瀚蓝环境:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735544.PDF 
+招商银行 有7条新公告 
 
-恒瑞医药 有1条新公告 
+招商银行:德勤华永会计师事务所(特殊普通合伙)关于招商银行股份有限公司会计估计变更的专项说明 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747889.PDF 
 
-恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210733933.PDF 
+招商银行:招商银行股份有限公司董事会关于会计估计变更的专项说明 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747888.PDF 
 
-药明康德 有9条新公告 
+招商银行:招商银行股份有限公司会计估计变更公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747887.PDF 
 
-药明康德:第二届监事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735616.PDF 
+招商银行:招商银行股份有限公司2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747886.PDF 
 
-药明康德:独立董事关于公司第二届董事会第十九次会议审议的相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735615.PDF 
+招商银行:  招商银行股份有限公司2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747885.PDF 
 
-药明康德:第二届董事会第十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735614.PDF 
+招商银行:招商银行股份有限公司第十一届监事会第二十次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747884.PDF 
 
-药明康德:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735613.PDF 
+招商银行:招商银行股份有限公司第十一届董事会第二十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747883.PDF 
 
-药明康德:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735612.PDF 
+平安银行 有1条新公告 
 
-药明康德:华泰联合证券有限责任公司关于无锡药明康德新药开发股份有限公司关于部分A股非公开发行股票募投项目延期的核查意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735611.PDF 
+平安银行:平安银行股份有限公司关于征集2021年半年度业绩发布会问题的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748000.PDF 
 
-药明康德:独立董事关于公司第二届董事会第十九次会议审议的相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735610.PDF 
+万科A 有1条新公告 
 
-药明康德:关于部分A股非公开发行股票募投项目的延期公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735609.PDF 
+万科A:关于董事会会议召开日期的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748375.PDF 
 
-药明康德:2021年半年度募集资金存放与实际使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735608.PDF 
+中兴通讯 有3条新公告 
 
-宁德时代 有17条新公告 
+中兴通讯:关于按照《香港上市规则》公布董事会会议通告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748062.PDF 
 
-宁德时代:向特定对象发行股票方案论证分析报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735808.PDF 
+中兴通讯:关于2021年度第七期超短期融资券发行情况的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748061.PDF 
 
-宁德时代:前次募集资金使用情况专项报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735807.PDF 
+中兴通讯:2020年度A股权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748057.PDF 
 
-宁德时代:前次募集资金使用情况鉴证报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735806.PDF 
+旗滨集团 有2条新公告 
 
-宁德时代:内部控制鉴证报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735805.PDF 
+旗滨集团:北京大成（广州）律师事务所关于旗滨集团2021年第二次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747907.PDF 
 
-宁德时代:向特定对象发行股票预案 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735804.PDF 
+旗滨集团:旗滨集团2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747906.PDF 
 
-宁德时代:关于召开公司2021年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735803.PDF 
+美的集团 有3条新公告 
 
-宁德时代:向特定对象发行股票募集资金使用可行性分析报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735802.PDF 
+美的集团:关于合伙人持股计划额度分配及归属期权益归属的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748407.PDF 
 
-宁德时代:未来三年股东回报规划（2021年-2023年） http://static.cninfo.com.cn/finalpage/2021-08-13/1210735801.PDF 
+美的集团:关于回购股份比例达1%暨回购方案实施完成的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748406.PDF 
 
-宁德时代:独立董事关于公司第二届董事会第三十二次会议相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735800.PDF 
+美的集团:关于第四期事业合伙人持股计划非交易过户完成的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748405.PDF 
 
-宁德时代:独立董事关于公司第二届董事会第三十二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735799.PDF 
+顺丰控股 有1条新公告 
 
-宁德时代:关于本次向特定对象发行股票不存在直接或通过利益相关方向参与认购的投资者提供财务资助或补偿的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735798.PDF 
+顺丰控股:关于全资子公司深圳顺丰泰森控股（集团）有限公司2021年度第四期超短期融资券发行结果公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210748301.PDF 
 
-宁德时代:关于最近五年不存在被证券监管部门和交易所采取监管措施或处罚情况的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735797.PDF 
+东方雨虹 有1条新公告 
 
-宁德时代:控股股东、实际控制人、董事和高级管理人员关于向特定对象发行股票摊薄即期回报采取填补措施承诺的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735796.PDF 
+东方雨虹:关于为下属公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747030.PDF 
 
-宁德时代:关于向特定对象发行股票摊薄即期回报的风险提示及填补措施的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735795.PDF 
+博腾股份 有13条新公告 
 
-宁德时代:关于向特定对象发行股票预案披露的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735794.PDF 
+博腾股份:公司章程（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-14/1210747595.PDF 
 
-宁德时代:第二届监事会第二十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735793.PDF 
+博腾股份:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747594.PDF 
 
-宁德时代:第二届董事会第三十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210735792.PDF 
+博腾股份:监事会关于公司2019年股票期权与限制性股票激励计划相关事项的核查意见 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747593.PDF 
 
-昭衍新药 有1条新公告 
+博腾股份:关于期权注销和限制性股票回购注销的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747592.PDF 
 
-昭衍新药:昭衍新药董事及一致行动人集中竞价减持股份计划公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734382.PDF 
+博腾股份:关于回购注销部分限制性股票的减资公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747591.PDF 
 
-韦尔股份 有2条新公告 
+博腾股份:关于2019年股票期权与限制性股票激励计划首次授予的第二个行权期解除限售期可行权解除限售条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747590.PDF 
 
-韦尔股份:关于控股股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210733560.PDF 
+博腾股份:独立董事关于第四届董事会第三十二次会议审议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747589.PDF 
 
-韦尔股份:关于“韦尔转债”回售的第三次提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210733559.PDF 
+博腾股份:北京市万商天勤律师事务所关于重庆博腾制药科技股份有限公司2019年股票期权与限制性股票激励计划首次授予股票期权与限制性股票的第二个行权期解除限售期可行权解除限售相关事宜及部分期权注销和限制性股票回购注销相关事宜的法律意见书 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747588.PDF 
 
-双汇发展 有28条新公告 
+博腾股份:2021年半年度募集资金存放与使用情况专项报告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747587.PDF 
 
-双汇发展:半年报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734098.PDF 
+博腾股份:2021年半年度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747586.PDF 
 
-双汇发展:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734097.PDF 
+博腾股份:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747585.PDF 
 
-双汇发展:汇丰前海证券有限责任公司关于河南双汇投资发展股份有限公司使用闲置募集资金进行现金管理之核查报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734096.PDF 
+博腾股份:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747584.PDF 
 
-双汇发展:监事会议事规则（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734095.PDF 
+博腾股份:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747583.PDF 
 
-双汇发展:股东大会议事规则（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734094.PDF 
+宁波银行 有7条新公告 
 
-双汇发展:公司章程（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734093.PDF 
+宁波银行:半年报财务报表 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746864.PDF 
 
-双汇发展:董事会议事规则（2021年8月） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734092.PDF 
+宁波银行:半年报监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746863.PDF 
 
-双汇发展:《监事会议事规则》修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734091.PDF 
+宁波银行:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746862.PDF 
 
-双汇发展:《股东大会议事规则》修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734090.PDF 
+宁波银行:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746860.PDF 
 
-双汇发展:《公司章程》修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734089.PDF 
+宁波银行:独立董事关于控股股东及其他关联方占用公司资金、公司对外担保情况的专项说明和独立意见 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746859.PDF 
 
-双汇发展:《董事会议事规则》修订对照表 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734088.PDF 
+宁波银行:半年报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746858.PDF 
 
-双汇发展:关于职工代表监事换届选举的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734087.PDF 
+宁波银行:半年报财务报告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746857.PDF 
 
-双汇发展:独立董事提名人声明（尹效华） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734086.PDF 
+长春高新 有8条新公告 
 
-双汇发展:独立董事提名人声明（罗新建） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734085.PDF 
+长春高新:关于召开2021年半年度度网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747453.PDF 
 
-双汇发展:独立董事提名人声明（刘东晓） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734084.PDF 
+长春高新:关于独立董事取得独立董事资格证书的公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747452.PDF 
 
-双汇发展:独立董事提名人声明（杜海波） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734083.PDF 
+长春高新:2021年半年度报告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747451.PDF 
 
-双汇发展:独立董事候选人声明（尹效华） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734082.PDF 
+长春高新:独立董事关于控股股东及其他关联方占用公司资金、公司对外担保情况的专项说明和独立意见 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747450.PDF 
 
-双汇发展:独立董事候选人声明（罗新建） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734081.PDF 
+长春高新:半年报董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747449.PDF 
 
-双汇发展:独立董事候选人声明（刘东晓） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734080.PDF 
+长春高新:董事会投资咨询委员会工作细则 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747448.PDF 
 
-双汇发展:独立董事候选人声明（杜海波） http://static.cninfo.com.cn/finalpage/2021-08-13/1210734079.PDF 
+长春高新:2021年半年度财务报告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747447.PDF 
 
-双汇发展:关于召开2021年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734078.PDF 
+长春高新:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-14/1210747445.PDF 
 
-双汇发展:关于使用闲置募集资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734077.PDF 
+汇顶科技 有1条新公告 
 
-双汇发展:关于河南双汇集团财务有限公司2021年半年度风险持续评估报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734076.PDF 
-
-双汇发展:2021年半年度募集资金存放与实际使用情况专项报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734075.PDF 
-
-双汇发展:独立董事关于控股股东及其他关联方占用公司资金、公司对外担保情况的专项说明和独立意见 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734074.PDF 
-
-双汇发展:半年报监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734073.PDF 
-
-双汇发展:2021年半年度财务报告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734072.PDF 
-
-双汇发展:2021年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734071.PDF 
-
-公牛集团 有2条新公告 
-
-公牛集团:公牛集团股份有限公司关于召开2021年半年度网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734438.PDF 
-
-公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-08-13/1210734437.PDF 
+汇顶科技:关于董事会和监事会换届选举的提示性公告 http://static.cninfo.com.cn/finalpage/2021-08-14/1210746780.PDF 
 
