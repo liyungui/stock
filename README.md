@@ -1,152 +1,84 @@
-要约收购 有1条新公告 
+要约收购 有2条新公告 
 
-京粮控股:关于提请股东大会批准间接控股股东免于以要约收购方式增持公司股份的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211196335.PDF 
+宏川智慧:关于下属公司拟全面要约收购龙翔集团控股有限公司全部股份的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219423.PDF 
 
-金域医学 有2条新公告 
+华图山鼎:关于华图宏阳投资有限公司要约收购公司股份之第二次提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217091.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司股东国创开元股权投资基金（有限合伙）集中竞价减持股份进展公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211193052.PDF 
+伊利股份 有5条新公告 
 
-金域医学:广州金域医学检验集团股份有限公司关于完成工商变更登记并换发营业执照的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211193051.PDF 
+伊利股份:北京天驰君泰律师事务所关于内蒙古伊利实业集团股份有限公司2019年限制性股票激励计划第二个解除限售期解除限售条件成就的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217405.PDF 
 
-华域汽车 有1条新公告 
+伊利股份:内蒙古伊利实业集团股份有限公司独立董事对2019年限制性股票激励计划第二个解除限售期解除限售条件成就的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217404.PDF 
 
-华域汽车:华域汽车关于全资子公司收购延锋安道拓座椅有限公司49.99%股权及其他相关资产进展情况的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192213.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于2019年限制性股票激励计划第二个解除限售期解除限售条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217403.PDF 
 
-海螺水泥 有1条新公告 
+伊利股份:内蒙古伊利实业集团股份有限公司第十届监事会临时会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217402.PDF 
 
-海螺水泥:关于按期收回委托理财本金及收益的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211193043.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司第十届董事会临时会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217401.PDF 
 
-中国平安 有1条新公告 
+格力电器 有1条新公告 
 
-中国平安:中国平安关于以集中竞价交易方式回购公司A股股份的回购进展公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211194591.PDF 
+格力电器:关于注销回购股份减少注册资本通知债权人的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219057.PDF 
 
-招商银行 有1条新公告 
+恒瑞医药 有7条新公告 
 
-招商银行:招商银行股份有限公司关于副行长任职资格核准的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211194670.PDF 
+恒瑞医药:恒瑞医药第八届监事会第十次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217741.PDF 
 
-海康威视 有7条新公告 
+恒瑞医药:恒瑞医药关于回购注销部分限制性股票通知债权人的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217740.PDF 
 
-海康威视:上市公司股权激励自查表 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209213.PDF 
+恒瑞医药:恒瑞医药关于回购注销部分激励对象已获授但尚未解除限售的限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217739.PDF 
 
-海康威视:第五届监事会第五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209212.PDF 
+恒瑞医药:恒瑞医药关于调整2020年度限制性股票激励计划限制性股票数量和回购价格的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217738.PDF 
 
-海康威视:第五届董事会第五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209211.PDF 
+恒瑞医药:独立董事关于第八届董事会第十二次会议有关事项的意见 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217737.PDF 
 
-海康威视:2021年限制性股票计划实施考核办法 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209210.PDF 
+恒瑞医药:北京市中伦律师事务所关于江苏恒瑞医药股份有限公司股权激励相关事项的法律意见 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217736.PDF 
 
-海康威视:2021年限制性股票计划（草案）摘要 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209209.PDF 
+恒瑞医药:恒瑞医药第八届董事会第十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217735.PDF 
 
-海康威视:2021年限制性股票计划（草案） http://static.cninfo.com.cn/finalpage/2021-10-08/1211209208.PDF 
+贵州茅台 有1条新公告 
 
-海康威视:独立董事关于第五届董事会第五次会议所涉事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209207.PDF 
+贵州茅台:贵州茅台第三届董事会2021年度第九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219145.PDF 
 
-福耀玻璃 有1条新公告 
+东方财富 有1条新公告 
 
-福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209069.PDF 
+东方财富:东方财富信息股份有限公司关于东财转3开始转股的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219138.PDF 
 
-中顺洁柔 有2条新公告 
+牧原股份 有1条新公告 
 
-中顺洁柔:关于公司第三期员工持股计划的进展公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211194260.PDF 
+牧原股份:2021年9月份生猪销售简报 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219001.PDF 
 
-中顺洁柔:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211194259.PDF 
+旗滨集团 有3条新公告 
 
-瀚蓝环境 有7条新公告 
+旗滨集团:旗滨集团关于全资孙公司完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219323.PDF 
 
-瀚蓝环境:关于召开2021年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-10-08/1211194276.PDF 
+旗滨集团:旗滨集团关于理财产品投资的进展公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219322.PDF 
 
-瀚蓝环境:瀚蓝环境股份有限公司章程(2021年9月修订,尚需提交股东大会审议通过） http://static.cninfo.com.cn/finalpage/2021-10-08/1211194273.PDF 
+旗滨集团:旗滨集团关于“旗滨转债”开始转股的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219321.PDF 
 
-瀚蓝环境:关于修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211194271.PDF 
+立讯精密 有1条新公告 
 
-瀚蓝环境:瀚蓝环境股份有限公司对外信息报送和使用管理制度（2021年修订） http://static.cninfo.com.cn/finalpage/2021-10-08/1211194269.PDF 
+立讯精密:2021年第三季度可转换公司债券转股情况公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211218182.PDF 
 
-瀚蓝环境:瀚蓝环境股份有限公司人力资源管理制度（2021年9月） http://static.cninfo.com.cn/finalpage/2021-10-08/1211194268.PDF 
+药明康德 有3条新公告 
 
-瀚蓝环境:瀚蓝环境股份有限公司信息披露事务管理制度（2021年修订） http://static.cninfo.com.cn/finalpage/2021-10-08/1211194267.PDF 
+药明康德:董事、高级管理人员集中竞价减持股份结果公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219473.PDF 
 
-瀚蓝环境:第十届董事会第十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211194266.PDF 
+药明康德:关于2019年限制性股票与股票期权激励计划首次授予股票期权2021年第三季度自主行权结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219472.PDF 
 
-中兴通讯 有1条新公告 
+药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211219044.PDF 
 
-中兴通讯:关于按照《香港上市规则》公布2021年9月份证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209235.PDF 
+通威股份 有1条新公告 
 
-立讯精密 有20条新公告 
+通威股份:通威股份有限公司2021年前三季度业绩预增公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211218136.PDF 
 
-立讯精密:关于申请发行超短期融资券的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195449.PDF 
+三安光电 有2条新公告 
 
-立讯精密:关于召开2021年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195448.PDF 
+三安光电:三安光电股份有限公司二〇二一年第三次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217326.PDF 
 
-立讯精密:独立董事公开征集委托投票权报告书 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195447.PDF 
+三安光电:三安光电股份有限公司关于控股股东部分股份解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211217227.PDF 
 
-立讯精密:独立董事关于相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195446.PDF 
+闻泰科技 有1条新公告 
 
-立讯精密:北京市天元（深圳）律师事务所关于立讯精密工业股份有限公司2021年股票期权激励计划的法律意见 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195445.PDF 
-
-立讯精密:上市公司股权激励计划草案自查表 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195444.PDF 
-
-立讯精密:监事会关于2021年股票期权激励计划首次授予的激励对象名单的核查意见 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195443.PDF 
-
-立讯精密:2021年股票期权激励计划首次授予的激励对象名单 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195442.PDF 
-
-立讯精密:2021年股票期权激励计划实施考核管理办法 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195441.PDF 
-
-立讯精密:2021年股票期权激励计划（草案）摘要 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195440.PDF 
-
-立讯精密:2021年股票期权激励计划（草案） http://static.cninfo.com.cn/finalpage/2021-10-08/1211195439.PDF 
-
-立讯精密:2018年股票期权激励计划人员名单（调整后） http://static.cninfo.com.cn/finalpage/2021-10-08/1211195438.PDF 
-
-立讯精密:北京市天元（深圳）律师事务所关于立讯精密工业股份有限公司2018年股票期权激励计划调整行权数量及注销部分股票期权的法律意见 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195437.PDF 
-
-立讯精密:关于调整2018年股票期权激励计划行权数量及注销部分股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195436.PDF 
-
-立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司2021年度增加日常关联交易预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195435.PDF 
-
-立讯精密:关于2021年度增加日常关联交易预计的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195434.PDF 
-
-立讯精密:独立董事关于2021年度日常关联交易预计的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195433.PDF 
-
-立讯精密:关于向银行申请并购贷款并质押子公司股权公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195432.PDF 
-
-立讯精密:第五届监事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195431.PDF 
-
-立讯精密:第五届董事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211195430.PDF 
-
-药明康德 有1条新公告 
-
-药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209339.PDF 
-
-中国重汽 有3条新公告 
-
-中国重汽:中国重汽公司章程修正案 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192789.PDF 
-
-中国重汽:关于召开公司2021年第四次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192788.PDF 
-
-中国重汽:第八届董事会2021年第三次临时会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192787.PDF 
-
-昭衍新药 有2条新公告 
-
-昭衍新药:验资报告（2021年9月） http://static.cninfo.com.cn/finalpage/2021-10-08/1211194389.PDF 
-
-昭衍新药:昭衍新药关于2020年股票期权激励计划第一次行权结果暨股份上市的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211194388.PDF 
-
-通威股份 有3条新公告 
-
-通威股份:关于通威股份有限公司募集资金使用情况的专项审计报告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192497.PDF 
-
-通威股份:通威股份有限公司公开发行可转换公司债券申请文件之二次反馈意见的回复 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192496.PDF 
-
-通威股份:通威股份有限公司关于《中国证监会行政许可项目审查二次反馈意见通知书》之回复的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192495.PDF 
-
-隆基股份 有1条新公告 
-
-隆基股份:关于韩华起诉公司专利侵权的进展公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211209246.PDF 
-
-新希望 有1条新公告 
-
-新 希 望:关于发起设立安徽国元新希望股权投资基金有限公司的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192490.PDF 
-
-永辉超市 有1条新公告 
-
-永辉超市:永辉超市股份有限公司关于持股5%以上股东所持部分股份质押解除的公告 http://static.cninfo.com.cn/finalpage/2021-10-08/1211192763.PDF 
+闻泰科技:关于2020年股票期权与限制性股票激励计划2021年第三季度自主行权结果暨股份变动的公告 http://static.cninfo.com.cn/finalpage/2021-10-09/1211216632.PDF 
 
