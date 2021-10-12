@@ -46,6 +46,7 @@ class MonitorHK(object):
             else:
                 print(stock_name + f' 现价 {stock_price}')
 
+
 class MonitorCH(object):
     '''
     港股价格监控
@@ -84,27 +85,69 @@ class MonitorCH(object):
 
 
 def monitor():
-    monitorsHK = [
-        ('01810', 21, 33),  # 小米
-        ('03690', 240, 330),  # 美团
-        ('00700', 585, 600)  # 腾讯
-    ]
+    localtime = datetime.datetime.now()
+    morningOpen = localtime.hour >= 9 and localtime.minute >= 30
+    morningClose = localtime.hour >= 11 and localtime.minute >= 30
+    morningHKClose = localtime.hour >= 12
+    afternoonOpen = localtime.hour >= 13
+    afternoonClose = localtime.hour >= 15
+    afternoonHKClose = localtime.hour >= 16
 
-    objHK = MonitorHK(monitorsHK)
-    objHK.monitor()
+    if (morningOpen and not morningHKClose) or (afternoonOpen and not afternoonHKClose):
+        monitorsHK = [
+            # ('01810', 21, 33),  # 小米
+            # ('03690', 190, 330),  # 美团
+            ('00700', 460, 500),  # 腾讯
+            ('02318', 56, 60),  # 中国平安
+        ]
 
-    monitorsCH = [
-        ('601888', 285, 300),  # 中国中免
-    ]
+        objHK = MonitorHK(monitorsHK)
+        objHK.monitor()
+    else:
+        print(f"HK market closed {localtime.hour}:{localtime.minute}")
 
-    objCH = MonitorCH(monitorsCH)
-    objCH.monitor()
+    if (morningOpen and not morningClose) or (afternoonOpen and not afternoonClose):
+        monitorsCH = [
+            # ('601888', 230, 250),  # 中国中免
+            # ('000597', 4.93, 5.5),  # 东北制药
+            # ('000983', 10, 11),  # 山西焦煤
+            ('688680', 210, 230),  # 海优新材
+            # ('300003', 25, 29),  # 乐普医疗
+            # ('300079', 9, 9.8),  # 数码视讯
+            # ('600740', 10.4, 11.1),  # 山西焦化
+            # ('600722', 8.0, 8.1),  # 金牛化工
+            ('300207', 36, 39.5),  # 欣旺达
+            ('600732', 13.5, 14.6),  # 爱旭股份
+            ('300582', 22.8, 24.1),  # 英飞特
+        ]
+
+        objCH = MonitorCH(monitorsCH)
+        objCH.monitor()
+    else:
+        print(f"CN market closed {localtime.hour}:{localtime.minute}")
+
 
 def main():
-    scheduler = BlockingScheduler()
+    scheduler = BlockingScheduler(timezone="Asia/Shanghai")
     scheduler.add_job(monitor, 'interval', seconds=5)
     scheduler.start()
 
 
+def timeTest():
+    monitor(datetime.time(8, 59))
+    monitor(datetime.time(9, 0))
+    monitor(datetime.time(9, 29))
+    monitor(datetime.time(9, 30))
+    monitor(datetime.time(10, 59))
+    monitor(datetime.time(11, 30))
+    monitor(datetime.time(12, 0))
+    monitor(datetime.time(13, 0))
+    monitor(datetime.time(13, 1))
+    monitor(datetime.time(15, 0))
+    monitor(datetime.time(15, 1))
+    monitor(datetime.time(16, 0))
+
+
 if __name__ == '__main__':
     main()
+    # timeTest()
