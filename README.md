@@ -1,66 +1,48 @@
-要约收购 有2条新公告 
+并购重组 有1条新公告 
 
-恒通股份:恒通物流股份有限公司关于提请股东大会批准公司控股股东免于以要约收购方式增持公司股份的公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211254314.PDF 
+冀东水泥:关于中国证监会上市公司并购重组审核委员会会议安排的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211271757.PDF 
 
-舍得酒业:舍得酒业关于控股股东免于要约收购的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211254284.PDF 
+爱美客 有4条新公告 
 
-并购重组 有2条新公告 
+爱美客:关于2021年第三季度报告披露的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268526.PDF 
 
-冀东水泥:关于收到中国证监会上市公司并购重组审核委员会审核公司吸收合并金隅冀东水泥（唐山）有限责任公司并募集配套资金暨关联交易事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211254780.PDF 
+爱美客:爱美客第二届监事会第十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268525.PDF 
 
-*ST万方:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2021-10-14/1211254661.PDF 
+爱美客:爱美客第二届董事会第二十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268524.PDF 
 
-邮储银行 有2条新公告 
+爱美客:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268523.PDF 
 
-邮储银行:中国邮政储蓄银行股份有限公司章程 http://static.cninfo.com.cn/finalpage/2021-10-14/1211252243.PDF 
+恒瑞医药 有2条新公告 
 
-邮储银行:中国邮政储蓄银行股份有限公司关于注册资本变更获中国银保监会核准的公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211252242.PDF 
+恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268885.PDF 
 
-伊利股份 有1条新公告 
+恒瑞医药:恒瑞医药关于公司药品拟纳入优先审评程序的公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268884.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于全资子公司内蒙古惠商融资担保有限公司2021年第三季度对外担保情况公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211252201.PDF 
+中兴通讯 有1条新公告 
 
-招商银行 有3条新公告 
+中兴通讯:2021年前三季度业绩预告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211270804.PDF 
 
-招商银行:招商银行股份有限公司第十一届监事会第二十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253576.PDF 
+TCL科技 有2条新公告 
 
-招商银行:招商银行股份有限公司第十一届董事会第三十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253575.PDF 
+TCL科技:2021年前三季度业绩预告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211272095.PDF 
 
-招商银行:招商银行股份有限公司境外优先股股息派发实施公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253574.PDF 
+TCL科技:关于“18TCL02”债券转售实施结果公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211269748.PDF 
 
-福耀玻璃 有1条新公告 
+顺丰控股 有1条新公告 
 
-福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253007.PDF 
+顺丰控股:2021年9月快递服务业务经营简报 http://static.cninfo.com.cn/finalpage/2021-10-15/1211271627.PDF 
 
-万科A 有1条新公告 
+韦尔股份 有1条新公告 
 
-万科A:关于董事会会议召开日期的公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211254781.PDF 
+韦尔股份:关于控股股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268919.PDF 
 
-旗滨集团 有1条新公告 
+中公教育 有2条新公告 
 
-旗滨集团:关于株洲旗滨集团股份有限公司中长期发展计划之第三期员工持股计划的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-14/1211252812.PDF 
+中公教育:2021年前三季度业绩预告的公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211272400.PDF 
 
-三一重工 有3条新公告 
+中公教育:2021年前三季度业绩预告的公告（英文版） http://static.cninfo.com.cn/finalpage/2021-10-15/1211272399.PDF 
 
-三一重工:三一重工股份有限公司关于完成工商变更并换发营业执照的公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253400.PDF 
+金山办公 有1条新公告 
 
-三一重工:三一重工股份有限公司关于聘任董事会秘书的公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253399.PDF 
-
-三一重工:三一重工股份有限公司关于董事会秘书辞职的公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253398.PDF 
-
-卫星石化 有2条新公告 
-
-卫星石化:关于公司事业合伙人持股计划的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-14/1211255367.PDF 
-
-卫星石化:关于回购股份事项前十名股东和前十名无限售条件股东持股情况的公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211255366.PDF 
-
-长春高新 有4条新公告 
-
-长春高新:关于控股子公司金妥利珠单抗注射液获得美国FDA孤儿药认定的公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253966.PDF 
-
-长春高新:北京大成（长春）律师事务所关于长春高新技术产业（集团）股份有限公司2021年第三次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253965.PDF 
-
-长春高新:公司章程（2021年10月修订） http://static.cninfo.com.cn/finalpage/2021-10-14/1211253964.PDF 
-
-长春高新:2021年第三次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-14/1211253963.PDF 
+金山办公:中国国际金融股份有限公司关于北京金山办公软件股份有限公司对外投资暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268992.PDF 
 
