@@ -1,48 +1,70 @@
-并购重组 有1条新公告 
+要约收购 有1条新公告 
 
-冀东水泥:关于中国证监会上市公司并购重组审核委员会会议安排的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211271757.PDF 
+江苏有线:华泰联合证券关于国金网络豁免要约收购江苏有线的持续督导总结报告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211287189.PDF 
 
-爱美客 有4条新公告 
+新城控股 有2条新公告 
 
-爱美客:关于2021年第三季度报告披露的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268526.PDF 
+新城控股:新城控股关于公司控股股东部分股份解质的公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211288236.PDF 
 
-爱美客:爱美客第二届监事会第十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268525.PDF 
+新城控股:新城控股2021年9月及第三季度经营简报 http://static.cninfo.com.cn/finalpage/2021-10-16/1211288235.PDF 
 
-爱美客:爱美客第二届董事会第二十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268524.PDF 
+伊利股份 有1条新公告 
 
-爱美客:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268523.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于2019年限制性股票激励计划第二个解除限售期解除限售暨上市公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289163.PDF 
 
-恒瑞医药 有2条新公告 
+中国平安 有2条新公告 
 
-恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268885.PDF 
+中国平安:平安证券股份有限公司关于中国平安保险（集团）股份有限公司差异化分红事项的核查意见 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289169.PDF 
 
-恒瑞医药:恒瑞医药关于公司药品拟纳入优先审评程序的公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268884.PDF 
+中国平安:中国平安2021年半年度分红派息实施公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289168.PDF 
 
-中兴通讯 有1条新公告 
+分众传媒 有1条新公告 
 
-中兴通讯:2021年前三季度业绩预告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211270804.PDF 
+分众传媒:公司2021年半年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289391.PDF 
 
-TCL科技 有2条新公告 
+招商银行 有1条新公告 
 
-TCL科技:2021年前三季度业绩预告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211272095.PDF 
+招商银行:招商银行股份有限公司关于股东权益变动的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211288704.PDF 
 
-TCL科技:关于“18TCL02”债券转售实施结果公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211269748.PDF 
+旗滨集团 有2条新公告 
 
-顺丰控股 有1条新公告 
+旗滨集团:北京大成（广州）律师事务所关于旗滨集团2021年第三次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289021.PDF 
 
-顺丰控股:2021年9月快递服务业务经营简报 http://static.cninfo.com.cn/finalpage/2021-10-15/1211271627.PDF 
+旗滨集团:旗滨集团2021年第三次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289020.PDF 
 
-韦尔股份 有1条新公告 
+立讯精密 有1条新公告 
 
-韦尔股份:关于控股股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268919.PDF 
+立讯精密:关于部分股票期权注销完成的公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211288824.PDF 
 
-中公教育 有2条新公告 
+片仔癀 有2条新公告 
 
-中公教育:2021年前三季度业绩预告的公告 http://static.cninfo.com.cn/finalpage/2021-10-15/1211272400.PDF 
+片仔癀:漳州片仔癀药业股份有限公司2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211287179.PDF 
 
-中公教育:2021年前三季度业绩预告的公告（英文版） http://static.cninfo.com.cn/finalpage/2021-10-15/1211272399.PDF 
+片仔癀:漳州片仔癀药业股份有限公司2021年前三季度主要经营数据公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211287178.PDF 
 
-金山办公 有1条新公告 
+卫星石化 有4条新公告 
 
-金山办公:中国国际金融股份有限公司关于北京金山办公软件股份有限公司对外投资暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2021-10-15/1211268992.PDF 
+卫星石化:2021年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289844.PDF 
+
+卫星石化:2021年第四次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289843.PDF 
+
+卫星石化:简式权益变动报告书（更正后） http://static.cninfo.com.cn/finalpage/2021-10-16/1211289842.PDF 
+
+卫星石化:关于简式权益变动报告书的更正公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289841.PDF 
+
+三安光电 有2条新公告 
+
+三安光电:上海市锦天城（武汉）律师事务所关于三安光电股份有限公司二〇二一年第三次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289162.PDF 
+
+三安光电:三安光电股份有限公司2021年第三次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289161.PDF 
+
+用友网络 有2条新公告 
+
+用友网络:用友网络高管集中竞价减持股份计划公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289217.PDF 
+
+用友网络:用友网络关于公司监事亲属短线交易公司股票及致歉公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211289216.PDF 
+
+深南电路 有1条新公告 
+
+深南电路:关于非公开发行股票获得中国航空工业集团有限公司批复的公告 http://static.cninfo.com.cn/finalpage/2021-10-16/1211287149.PDF 
 
