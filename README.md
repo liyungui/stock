@@ -1,58 +1,48 @@
 并购重组 有1条新公告 
 
-奥赛康:关于收到中国证监会上市公司并购重组审核委员会审核公司发行股份及支付现金购买资产事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211339664.PDF 
+奥赛康:关于中国证监会上市公司并购重组审核委员会工作会议安排的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211347537.PDF 
 
-金域医学 有1条新公告 
+新城控股 有1条新公告 
 
-金域医学:广州金域医学检验集团股份有限公司股东上海辰德惟敬投资中心（有限合伙）集中竞价减持股份结果公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211336874.PDF 
+新城控股:新城控股关于下属子公司涉及诉讼的结果公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345196.PDF 
 
-中国平安 有2条新公告 
+旗滨集团 有2条新公告 
 
-中国平安:平安银行股份有限公司2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211338408.PDF 
+旗滨集团:旗滨集团关于控股股东及一致行动人减持公司可转换公司债券的公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345407.PDF 
 
-中国平安:中国平安关于披露平安银行2021年第三季度报告的公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211338407.PDF 
+旗滨集团:关于中长期发展计划之第三 期员工持股计划实施进展公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345406.PDF 
 
-恒瑞医药 有1条新公告 
+昭衍新药 有2条新公告 
 
-恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211336666.PDF 
+昭衍新药:北京市康达律师事务所关于昭衍新药回购注销部分限制性股票、注销部分股票期权、限制性股票解除限售及股票期权行权、调整授予数量及价格相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-22/1211346274.PDF 
 
-平安银行 有4条新公告 
+昭衍新药:昭衍新药关于2019年股票期权与限制性股票激励计划限制性股票解除限售暨上市的公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211346273.PDF 
 
-平安银行:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337714.PDF 
+三安光电 有1条新公告 
 
-平安银行:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337713.PDF 
+三安光电:三安光电股份有限公司关于控股股东部分股份质押的公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211344999.PDF 
 
-平安银行:平安银行股份有限公司独立董事相关独立意见 2021-10-21 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337712.PDF 
+韦尔股份 有8条新公告 
 
-平安银行:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337711.PDF 
+韦尔股份:第五届监事会第四十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345911.PDF 
 
-中兴通讯 有1条新公告 
+韦尔股份:北京市天元律师事务所关于上海韦尔半导体股份有限公司2020年股票期权与限制性股票激励计划限制性股票第一个解除限售期股票解除限售相关事宜的法律意见 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345910.PDF 
 
-中兴通讯:关于2021年度第九期及第十期超短期融资券发行情况的公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337505.PDF 
+韦尔股份:关于2020年股票期权与限制性股票激励计划授予的限制性股票第一期解除限售暨上市公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345909.PDF 
 
-旗滨集团 有1条新公告 
+韦尔股份:第五届董事会第四十七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345908.PDF 
 
-旗滨集团:旗滨集团关于理财产品投资的进展公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337725.PDF 
+韦尔股份:北京市天元律师事务所关于上海韦尔半导体股份有限公司2019年股票期权激励计划注销部分股票期权及首次授予部分第二个行权期行权相关事宜的法律意见 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345907.PDF 
 
-隆基股份 有2条新公告 
+韦尔股份:独立董事对第五届董事会第四十七次会议相关议案的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345906.PDF 
 
-隆基股份:关于《请做好隆基绿能科技股份有限公司公开发行可转债发审委会议准备工作的函》的回复 http://static.cninfo.com.cn/finalpage/2021-10-21/1211336669.PDF 
+韦尔股份:关于公司2019年股票期权激励计划首次授予的股票期权第二个行权期符合行权条件的公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345905.PDF 
 
-隆基股份:隆基股份关于公开发行可转债发审委会议准备工作告知函回复的公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211336668.PDF 
+韦尔股份:关于注销公司2019年股票期权激励计划首次授予的部分股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-10-22/1211345904.PDF 
 
-中信建投 有4条新公告 
+汇顶科技 有2条新公告 
 
-中信建投:北京市天元律师事务所关于中信建投证券股份有限公司2021年第四次临时股东大会的法律意见（修订版） http://static.cninfo.com.cn/finalpage/2021-10-21/1211338757.PDF 
+汇顶科技:监事会关于2021年第三期股票期权激励计划激励对象人员名单的核查意见及公示情况说明 http://static.cninfo.com.cn/finalpage/2021-10-22/1211344846.PDF 
 
-中信建投:关于董事任职的公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337724.PDF 
-
-中信建投:北京市天元律师事务所关于中信建投证券股份有限公司2021年第四次临时股东大会的法律意见 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337723.PDF 
-
-中信建投:2021年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211337722.PDF 
-
-深南电路 有2条新公告 
-
-深南电路:深南电路股份有限公司章程（2021年10月） http://static.cninfo.com.cn/finalpage/2021-10-21/1211338340.PDF 
-
-深南电路:关于完成经营范围变更及《公司章程》备案登记的公告 http://static.cninfo.com.cn/finalpage/2021-10-21/1211338339.PDF 
+汇顶科技:监事会关于2021年第二期股票期权激励计划激励对象人员名单的核查意见及公示情况说明 http://static.cninfo.com.cn/finalpage/2021-10-22/1211344845.PDF 
 
