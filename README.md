@@ -1,162 +1,206 @@
-并购重组 有1条新公告 
+要约收购 有4条新公告 
 
-奥赛康:关于中国证监会上市公司并购重组审核委员会审核公司发行股份及支付现金购买资产事项的停牌公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385891.PDF 
+华图山鼎:关于华图宏阳投资有限公司要约收购公司股份完成过户的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211407256.PDF 
 
-潍柴动力 有11条新公告 
+华图山鼎:关于华图宏阳投资有限公司要约收购结果暨股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211404913.PDF 
 
-潍柴动力:潍柴动力股份有限公司章程 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387978.PDF 
+航发控制:关于中国航空发动机集团有限公司及其一致行动人收购中国航发动力控制股份有限公司免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403967.PDF 
 
-潍柴动力:潍柴动力股份有限公司监事会议事规则 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387977.PDF 
+国瑞科技:关于控股股东免于要约收购的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211400840.PDF 
 
-潍柴动力:潍柴动力股份有限公司关联交易决策制度 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387976.PDF 
+并购重组 有3条新公告 
 
-潍柴动力:潍柴动力股份有限公司股东大会议事规则 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387975.PDF 
+佛山照明:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2021-10-28/1211407053.PDF 
 
-潍柴动力:潍柴动力股份有限公司董事会战略发展及投资委员会工作细则 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387974.PDF 
+奥赛康:关于发行股份及支付现金购买资产事项未获得中国证监会上市公司并购重组审核委员会审核通过暨公司股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211406238.PDF 
 
-潍柴动力:潍柴动力股份有限公司董事会议事规则 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387973.PDF 
+宇顺电子:关于收到中国证监会上市公司并购重组审核委员会审核公司发行股份及支付现金购买资产事项的提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405963.PDF 
 
-潍柴动力:潍柴动力股份有限公司董事会薪酬委员会工作细则 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387972.PDF 
+科顺股份 有5条新公告 
 
-潍柴动力:潍柴动力股份有限公司董事会提名委员会工作细则 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387971.PDF 
+科顺股份:关于发行股份及支付现金购买资产恢复审核的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405530.PDF 
 
-潍柴动力:潍柴动力股份有限公司董事会审核委员会工作细则 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387970.PDF 
+科顺股份:2021年第三季度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211401084.PDF 
 
-潍柴动力:北京市通商律师事务所关于潍柴动力股份有限公司2021年第三次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387969.PDF 
+科顺股份:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211401082.PDF 
 
-潍柴动力:潍柴动力股份有限公司2021年第三次临时股东大会会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387968.PDF 
+科顺股份:第三届监事会第七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211401081.PDF 
 
-格力电器 有2条新公告 
+科顺股份:第三届董事会第八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211401079.PDF 
 
-格力电器:独立董事关于公司2021年第三季度开展衍生品投资业务的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387707.PDF 
+金域医学 有1条新公告 
 
-格力电器:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387706.PDF 
+金域医学:广州金域医学检验集团股份有限公司股东集中竞价减持股份结果公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402559.PDF 
 
-海螺水泥 有1条新公告 
+兴齐眼药 有2条新公告 
 
-海螺水泥:2021年第二次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384911.PDF 
+兴齐眼药:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211400809.PDF 
 
-恒瑞医药 有1条新公告 
+兴齐眼药:2021年第三季度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211400808.PDF 
 
-恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384910.PDF 
+伊利股份 有3条新公告 
 
-TCL科技 有3条新公告 
+伊利股份:内蒙古伊利实业集团股份有限公司第十届董事会临时会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403389.PDF 
 
-TCL科技:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387394.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司独立董事关于境外子公司投资及收购澳优乳业股份有限公司股权的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403388.PDF 
 
-TCL科技:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387393.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于境外子公司投资及收购澳优乳业股份有限公司股权的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403387.PDF 
 
-TCL科技:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211387392.PDF 
+中国平安 有3条新公告 
 
-长江电力 有1条新公告 
+中国平安:中国平安独立董事的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405449.PDF 
 
-长江电力:长江电力关于召开2021年第三季度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384267.PDF 
+中国平安:中国平安第十二届董事会第五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405448.PDF 
 
-宁德时代 有15条新公告 
+中国平安:中国平安2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405447.PDF 
 
-宁德时代:中信建投证券股份有限公司关于宁德时代新能源科技股份有限公司新增和调整2021年度担保额度预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388622.PDF 
+伟星新材 有4条新公告 
 
-宁德时代:关于新增和调整2021年度担保额度的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388621.PDF 
+伟星新材:关于拟收购Fast Flow Limited 100%股权的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211407204.PDF 
 
-宁德时代:关于召开公司2021年第二次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388620.PDF 
+伟星新材:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211407203.PDF 
 
-宁德时代:独立董事公开征集委托投票权报告书 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388619.PDF 
+伟星新材:独立董事相关意见 http://static.cninfo.com.cn/finalpage/2021-10-28/1211407202.PDF 
 
-宁德时代:关于宁德时代新能源科技股份有限公司2021年股票期权与限制性股票激励计划的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388616.PDF 
+伟星新材:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211407201.PDF 
 
-宁德时代:上海荣正投资咨询股份有限公司关于宁德时代新能源科技股份有限公司2021年股票期权与限制性股票激励计划（草案）之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388614.PDF 
+中顺洁柔 有10条新公告 
 
-宁德时代:2021年股票期权与限制性股票激励计划自查表 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388613.PDF 
+中顺洁柔:关于公司《2018年股票期权与限制性股票激励计划》首次授予的部分限制性股票回购注销完成的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403004.PDF 
 
-宁德时代:2021年股票期权与限制性股票激励计划首次授予部分激励对象名单 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388610.PDF 
+中顺洁柔:2021年第三季度报告（英文版） http://static.cninfo.com.cn/finalpage/2021-10-28/1211403002.PDF 
 
-宁德时代:2021年股票期权与限制性股票激励计划实施考核管理办法 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388609.PDF 
+中顺洁柔:独立董事关于补选第五届董事会非独立董事的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403001.PDF 
 
-宁德时代:2021年股票期权与限制性股票激励计划（草案）摘要 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388608.PDF 
+中顺洁柔:关于公司副总裁辞职的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402999.PDF 
 
-宁德时代:2021年股票期权与限制性股票激励计划（草案） http://static.cninfo.com.cn/finalpage/2021-10-27/1211388606.PDF 
+中顺洁柔:关于召开2021年度第五次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402997.PDF 
 
-宁德时代:独立董事关于公司第二届董事会第三十六次会议相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388604.PDF 
+中顺洁柔:关于聘任证券事务代表的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402995.PDF 
 
-宁德时代:独立董事关于公司第二届董事会第三十六次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388602.PDF 
+中顺洁柔:关于补选第五届董事会非独立董事的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402993.PDF 
 
-宁德时代:第二届监事会第二十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388601.PDF 
+中顺洁柔:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402992.PDF 
 
-宁德时代:第二届董事会第三十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211388600.PDF 
+中顺洁柔:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402991.PDF 
 
-中国重汽 有3条新公告 
+中顺洁柔:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402989.PDF 
 
-中国重汽:中国重汽集团济南卡车股份有限公司章程 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385762.PDF 
+恒瑞医药 有2条新公告 
 
-中国重汽:北京德恒律师事务所关于中国重汽集团济南卡车股份有限公司2021年第四次临时股东大会的法律意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385761.PDF 
+恒瑞医药:恒瑞医药关于药物临床试验进展的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405312.PDF 
 
-中国重汽:公司2021年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385760.PDF 
+恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402255.PDF 
 
-东方雨虹 有16条新公告 
+万科A 有2条新公告 
 
-东方雨虹:关于对外担保的进展公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385815.PDF 
+万科A:万科企业股份有限公司关于“18万科02”回售结果暨摘牌公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211404236.PDF 
 
-东方雨虹:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385814.PDF 
+万科A:万科企业股份有限公司2018年面向合格投资者公开发行住房租赁专项公司债券（第二期）2021年付息公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211404235.PDF 
 
-东方雨虹:北京市金杜律师事务所关于北京东方雨虹防水技术股份有限公司调整第三期限制性股票激励计划限制性股票回购价格并回购注销部分已不符合激励条件的激励对象已获授但尚未解除限售的限制性股票的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385813.PDF 
+中兴通讯 有6条新公告 
 
-东方雨虹:北京市金杜律师事务所关于北京东方雨虹防水技术股份有限公司第三期限制性股票第一个解除限售期解除限售事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385811.PDF 
+中兴通讯:关于实施2020年度权益分派后调整发行股份购买资产的股份发行价格和发行数量的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405241.PDF 
 
-东方雨虹:北京大成律师事务所关于北京东方雨虹防水技术股份有限公司第二期限制性股票激励计划首次授予及预留部分限制性股票回购价格并回购注销部分限制性股票相关事项之法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385808.PDF 
+中兴通讯:关于发行股份购买资产并募集配套资金之标的资产过户完成的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405240.PDF 
 
-东方雨虹:关于增加拟设立合资公司股东暨贵阳绿色建材生产基地、贵州区域总部项目的进展公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385807.PDF 
+中兴通讯:中信建投证券股份有限公司关于公司实施2020年度权益分派后调整发行股份购买资产的股份发行价格和发行数量之专项核查意见 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405239.PDF 
 
-东方雨虹:公司章程（2021年10月） http://static.cninfo.com.cn/finalpage/2021-10-27/1211385805.PDF 
+中兴通讯:中信建投证券股份有限公司关于公司发行股份购买资产并募集配套资金标的资产过户情况之独立财务顾问核查意见 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405238.PDF 
 
-东方雨虹:独立董事关于第七届董事会第四十四次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385804.PDF 
+中兴通讯:北京市君合律师事务所关于公司发行股份购买资产并募集配套资金之标的资产过户情况的法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405237.PDF 
 
-东方雨虹:关于召开2021年第四次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385802.PDF 
+中兴通讯:北京君合律师事务所关于公司调整发行股份购买资产并募集配套资金所涉股份发行价格和发行数量之法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-28/1211405236.PDF 
 
-东方雨虹:关于在安徽合肥肥西县投资设立全资子公司及建设绿色建材生产基地项目的对外投资公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385801.PDF 
+立讯精密 有5条新公告 
 
-东方雨虹:关于调整第三期限制性股票激励计划限制性股票回购价格并回购注销部分已不符合激励条件的激励对象已获授但尚未解除限售的限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385800.PDF 
+立讯精密:关于可转换公司债券2021年付息公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211406383.PDF 
 
-东方雨虹:关于调整第二期限制性股票激励计划预留部分限制性股票的回购价格并回购注销部分已不符合激励条件的激励对象已获授但尚未解锁的预留部分限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385798.PDF 
+立讯精密:监事会对公司《2021年第三季度报告》的审核意见 http://static.cninfo.com.cn/finalpage/2021-10-28/1211406379.PDF 
 
-东方雨虹:关于调整第二期限制性股票激励计划首次授予部分限制性股票的回购价格并回购注销部分已不符合激励条件的激励对象已获授但尚未解锁的首次授予部分限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385797.PDF 
+立讯精密:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211406378.PDF 
 
-东方雨虹:关于第三期限制性股票激励计划第一个解除限售期解除限售条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385796.PDF 
+立讯精密:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211406377.PDF 
 
-东方雨虹:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385794.PDF 
+立讯精密:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211406376.PDF 
 
-东方雨虹:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211385793.PDF 
+千禾味业 有5条新公告 
 
-歌尔股份 有2条新公告 
+千禾味业:千禾味业关于召开2021年第三季度网上业绩说明会的预告公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403605.PDF 
 
-歌尔股份:2021年年度业绩预告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211386017.PDF 
+千禾味业:千禾味业2021年第三季度经营数据公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403604.PDF 
 
-歌尔股份:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211386016.PDF 
+千禾味业:千禾味业第四届监事会第三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403603.PDF 
 
-双汇发展 有13条新公告 
+千禾味业:千禾味业第四届董事会第三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403602.PDF 
 
-双汇发展:关于河南双汇集团财务有限公司关联交易风险处置预案 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384767.PDF 
+千禾味业:千禾味业2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403601.PDF 
 
-双汇发展:关于河南双汇集团财务有限公司的风险评估报告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384766.PDF 
+新产业 有5条新公告 
 
-双汇发展:汇丰前海证券有限责任公司关于河南双汇投资发展股份有限公司开展商品期货套期保值业务的核查意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384765.PDF 
+新产业:关于获得医疗器械注册证的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211399824.PDF 
 
-双汇发展:汇丰前海证券关于双汇发展子公司河南双汇集团财务有限公司与哈尔滨鹏达种业有限公司签订《金融服务协议》暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384764.PDF 
+新产业:第四届监事会第二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211399823.PDF 
 
-双汇发展:关于开展商品期货套期保值业务的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384763.PDF 
+新产业:第四届董事会第二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211399822.PDF 
 
-双汇发展:期货套期保值业务管理制度 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384762.PDF 
+新产业:2021年第三季度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211399821.PDF 
 
-双汇发展:关于开展商品期货套期保值业务的可行性分析报告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384761.PDF 
+新产业:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211399820.PDF 
 
-双汇发展:关于河南双汇集团财务有限公司与哈尔滨鹏达种业有限公司签订《金融服务协议》暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384760.PDF 
+生物股份 有1条新公告 
 
-双汇发展:独立董事关于相关事项提交董事会审议事前认可的书面意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384759.PDF 
+生物股份:金宇生物技术股份有限公司关于召开2021年第三季度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211402249.PDF 
 
-双汇发展:独立董事关于相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384758.PDF 
+双汇发展 有1条新公告 
 
-双汇发展:监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384757.PDF 
+双汇发展:关于使用闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211406937.PDF 
 
-双汇发展:董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384756.PDF 
+云南白药 有1条新公告 
 
-双汇发展:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-27/1211384755.PDF 
+云南白药:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211399818.PDF 
+
+汇顶科技 有15条新公告 
+
+汇顶科技:独立董事关于公司第四届董事会第三次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403824.PDF 
+
+汇顶科技:关于调整2021年第二期股票期权激励计划相关事项的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403823.PDF 
+
+汇顶科技:关于2021年第二期及第三期股票期权激励计划内幕信息知情人买卖公司股票情况自查报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403822.PDF 
+
+汇顶科技:广东信达律师事务所关于深圳市汇顶科技股份有限公司2021年第四次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403821.PDF 
+
+汇顶科技:2021年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403820.PDF 
+
+汇顶科技:国浩律师（深圳）事务所关于深圳市汇顶科技股份有限公司2021年第三期股票期权激励计划调整及授予事项之法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403819.PDF 
+
+汇顶科技:关于调整2021年第三期股票期权激励计划相关事项的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403818.PDF 
+
+汇顶科技:第四届监事会第三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403817.PDF 
+
+汇顶科技:第四届董事会第三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403816.PDF 
+
+汇顶科技:2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403815.PDF 
+
+汇顶科技:2021年第三期股票期权激励计划授予激励对象名单（调整后） http://static.cninfo.com.cn/finalpage/2021-10-28/1211403814.PDF 
+
+汇顶科技:关于向激励对象授予2021年第三期股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403813.PDF 
+
+汇顶科技:2021年第二期股票期权激励计划授予激励对象名单(调整后) http://static.cninfo.com.cn/finalpage/2021-10-28/1211403812.PDF 
+
+汇顶科技:关于向激励对象授予2021年第二期股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403811.PDF 
+
+汇顶科技:国浩律师（深圳）事务所关于深圳市汇顶科技股份有限公司2021年第二期股票期权激励计划调整及授予事项之法律意见书 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403810.PDF 
+
+恒力石化 有5条新公告 
+
+恒力石化:恒力石化关于控股股东部分股份解除质押及再质押的公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403579.PDF 
+
+恒力石化:恒力石化2021年第三季度报告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403578.PDF 
+
+恒力石化:恒力石化第八届董事会第二十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403577.PDF 
+
+恒力石化:恒力石化2021年三季度主要经营数据公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403576.PDF 
+
+恒力石化:恒力石化第八届监事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-10-28/1211403575.PDF 
 
