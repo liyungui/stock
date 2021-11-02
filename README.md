@@ -1,96 +1,68 @@
-要约收购 有5条新公告 
+要约收购 有3条新公告 
 
-ST信通:亿阳信通要约收购报告书摘要 http://static.cninfo.com.cn/finalpage/2021-11-02/1211459097.PDF 
+博汇纸业:海通证券股份有限公司关于金光纸业（中国）投资有限公司要约收购山东博汇纸业股份有限公司之2021年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-11-03/1211468718.PDF 
 
-ST信通:亿阳信通关于收到要约收购报告书摘要的提示性公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211459096.PDF 
+百大集团:中信建投证券股份有限公司关于陈夏鑫要约收购百大集团股份有限公司之持续督导意见 http://static.cninfo.com.cn/finalpage/2021-11-03/1211468088.PDF 
 
-惠而浦:中信证券股份有限公司关于格兰仕家用电器要约收购公司之2021年三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456179.PDF 
+大庆华科:海通证券股份有限公司关于中国石油大庆石油化工有限公司豁免要约收购大庆华科股份有限公司的持续督导意见 http://static.cninfo.com.cn/finalpage/2021-11-03/1211467725.PDF 
 
-澳柯玛:中信建投证券股份有限公司关于青岛澳柯玛控股集团有限公司免于发出要约收购公司的持续督导意见（2021年第三季度） http://static.cninfo.com.cn/finalpage/2021-11-02/1211456141.PDF 
+并购重组 有2条新公告 
 
-泉阳泉:中信证券股份有限公司关于吉林省吉盛资产管理有限公司免于发出要约收购公司的2021年三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-11-02/1211455958.PDF 
+永和智控:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469875.PDF 
 
-中国平安 有2条新公告 
+宇顺电子:关于中国证监会上市公司并购重组审核委员会审核公司发行股份及支付现金购买资产并募集配套资金暨关联交易事项的停牌公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211468875.PDF 
 
-中国平安:中国平安H股公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211458205.PDF 
+科顺股份 有1条新公告 
 
-中国平安:中国平安关于以集中竞价交易方式回购公司A股股份的回购进展公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457112.PDF 
+科顺股份:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211468217.PDF 
 
-安琪酵母 有1条新公告 
+伊利股份 有1条新公告 
 
-安琪酵母:安琪酵母股份有限公司关于非公开发行A股股票事项获得宜昌市国资委批复的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457109.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于2021年度第三十一期超短期融资券发行结果的公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211467874.PDF 
 
-中顺洁柔 有2条新公告 
+中国平安 有1条新公告 
 
-中顺洁柔:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211455937.PDF 
+中国平安:中国平安H股公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211468963.PDF 
 
-中顺洁柔:关于公司第三期员工持股计划的进展公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211455936.PDF 
+东方财富 有2条新公告 
 
-TCL科技 有8条新公告 
+东方财富:东方财富信息股份有限公司关于不提前赎回东财转3的公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469964.PDF 
 
-TCL科技:关于2021年非公开发行A股股票摊薄即期回报填补措施及相关承诺（修订稿）的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211458683.PDF 
+东方财富:东方财富信息股份有限公司第五届董事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469963.PDF 
 
-TCL科技:关于2021年非公开发行A股股票方案调整及预案修订情况说明的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211458682.PDF 
+药明康德 有2条新公告 
 
-TCL科技:2021年非公开发行A股股票募集资金使用的可行性分析报告（修订稿） http://static.cninfo.com.cn/finalpage/2021-11-02/1211458681.PDF 
+药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469030.PDF 
 
-TCL科技:2021年非公开发行A股股票预案（修订稿） http://static.cninfo.com.cn/finalpage/2021-11-02/1211458680.PDF 
+药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469029.PDF 
 
-TCL科技:监事会关于公司调整2021年非公开发行A股股票方案及相关事项的的书面审核意见 http://static.cninfo.com.cn/finalpage/2021-11-02/1211458679.PDF 
+歌尔股份 有1条新公告 
 
-TCL科技:独立董事关于第七届董事会第十三次会议相关审议事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-11-02/1211458678.PDF 
+歌尔股份:关于控股股东非公开发行可交换公司债券换股进展暨权益变动比例超过1%的公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211468112.PDF 
 
-TCL科技:第七届监事会第十次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211458677.PDF 
+中信建投 有1条新公告 
 
-TCL科技:第七届董事会第十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211458676.PDF 
+中信建投:截至2021年10月31日止月份之股份發行人的證券變動月報表 http://static.cninfo.com.cn/finalpage/2021-11-03/1211467708.PDF 
 
-旗滨集团 有8条新公告 
+闻泰科技 有3条新公告 
 
-旗滨集团:旗滨集团监事会关于公司第四届监事会第三十四次会议相关议案的审核意见 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457902.PDF 
+闻泰科技:关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469279.PDF 
 
-旗滨集团:旗滨集团第四届监事会第三十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457901.PDF 
+闻泰科技:关于收购广州得尔塔影像技术有限公司100%股权及相关经营性资产的进展公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469221.PDF 
 
-旗滨集团:旗滨集团关于控股股东及一致行动人减持公司可转换公司债券的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457900.PDF 
+闻泰科技:关于增加募集资金专户并签订监管协议的公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469220.PDF 
 
-旗滨集团:旗滨集团关于开展纯碱期货套期保值业务的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457899.PDF 
+长春高新 有2条新公告 
 
-旗滨集团:旗滨集团关于湖南药玻投资建设中性硼硅药用玻璃素管生产线项目（二期）暨增资的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457898.PDF 
+长春高新:关于为控股子公司长春金赛药业有限责任公司提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469088.PDF 
 
-旗滨集团:株洲旗滨集团股份有限公司套期保值管理制度 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457897.PDF 
+长春高新:第十届董事会第五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469087.PDF 
 
-旗滨集团:旗滨集团独立董事关于公司第四届董事会第三十四次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457896.PDF 
+公牛集团 有1条新公告 
 
-旗滨集团: 旗滨集团第四届董事会第三十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211457895.PDF 
-
-韦尔股份 有7条新公告 
-
-韦尔股份:2021年股票期权与限制性股票激励计划限制性股票激励对象名单（授予日） http://static.cninfo.com.cn/finalpage/2021-11-02/1211456230.PDF 
-
-韦尔股份:北京市通商律师事务所关于上海韦尔半导体股份有限公司2021年股票期权与限制性股票激励计划调整及授予事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456229.PDF 
-
-韦尔股份:独立董事对第五届董事会第五十次会议相关议案的独立意见 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456228.PDF 
-
-韦尔股份:关于向激励对象授予限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456227.PDF 
-
-韦尔股份:第五届监事会第四十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456226.PDF 
-
-韦尔股份:第五届董事会第五十次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456225.PDF 
-
-韦尔股份:关于调整2021年股票期权与限制性股票激励计划限制性股票激励对象名单及数量的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456224.PDF 
-
-宁波银行 有1条新公告 
-
-宁波银行:宁波银行股份有限公司第二期优先股股息发放实施公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211459181.PDF 
-
-闻泰科技 有1条新公告 
-
-闻泰科技:关于完成工商变更并换发营业执照的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456435.PDF 
-
-汇顶科技 有1条新公告 
-
-汇顶科技:关于以集中竞价交易方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211456146.PDF 
+公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理到期收回的进展公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211468130.PDF 
 
 深南电路 有1条新公告 
 
-深南电路:关于公司及子公司获得政府补助的公告 http://static.cninfo.com.cn/finalpage/2021-11-02/1211458230.PDF 
+深南电路:关于股票交易异常波动的公告 http://static.cninfo.com.cn/finalpage/2021-11-03/1211469530.PDF 
 
