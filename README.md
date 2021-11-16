@@ -1,74 +1,76 @@
-要约收购 有3条新公告 
+要约收购 有1条新公告 
 
-标准股份:中信证券股份有限公司关于陕西鼓风机（集团）有限公司免于发出要约收购西安标准工业股份有限公司之2021年第三季度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211589161.PDF 
+盾安环境:关于提请股东大会审议同意免于发出收购要约的公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604635.PDF 
 
-精华制药:关于公司持有美国KADMON股票完成要约收购的公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211587955.PDF 
+并购重组 有6条新公告 
 
-陕鼓动力:中信证券股份有限公司关于西安工业投资集团有限公司免于发出要约收购西安陕鼓动力股份有限公司之2021年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2021-11-16/1211586088.PDF 
+安德利:上市公司并购重组财务顾问专业意见附表第2号-重大资产重组 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604352.PDF 
 
-兴业银行 有2条新公告 
+钱江生化:中信证券股份有限公司关于《浙江钱江生物化学股份有限公司关于中国证监会上市公司并购重组审核委员会审核意见的回复》之核查意见 http://static.cninfo.com.cn/finalpage/2021-11-17/1211603779.PDF 
 
-兴业银行:国浩律师（上海）事务所关于兴业银行股份有限公司2021年第一次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-11-16/1211589270.PDF 
+钱江生化:坤元资产评估有限公司关于中国证券监督管理委员会上市公司并购重组审核委员会2021年第29次会议审核意见答复 http://static.cninfo.com.cn/finalpage/2021-11-17/1211603777.PDF 
 
-兴业银行:兴业银行2021年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211589269.PDF 
+钱江生化:钱江生化关于中国证监会上市公司并购重组审核委员会审核意见的回复 http://static.cninfo.com.cn/finalpage/2021-11-17/1211603775.PDF 
 
-中国平安 有1条新公告 
+钱江生化:钱江生化关于中国证券监督管理委员会上市公司并购重组审核委员会审核意见的回复公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211603773.PDF 
 
-中国平安:中国平安保费收入公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211587395.PDF 
+ST平能:关于中国证监会上市公司并购重组审核委员会审核公司吸收合并事项的公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211601945.PDF 
 
-上海机场 有3条新公告 
+天味食品 有1条新公告 
 
-上海机场:上海机场简式权益变动报告书（上海国投公司） http://static.cninfo.com.cn/finalpage/2021-11-16/1211587041.PDF 
+天味食品:关于部分股票期权注销完成的公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211601389.PDF 
 
-上海机场:上海机场简式权益变动报告书（机场集团） http://static.cninfo.com.cn/finalpage/2021-11-16/1211587040.PDF 
+格力电器 有7条新公告 
 
-上海机场:上海机场关于股份无偿划转的提示性公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211587039.PDF 
+格力电器:关于对第一期员工持股计划认购后剩余股份进行注销的公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604599.PDF 
 
-中顺洁柔 有1条新公告 
+格力电器:关于因执行期间派发红利对员工持股计划购买回购股份价格调整的公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604506.PDF 
 
-中顺洁柔:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211587735.PDF 
+格力电器:第十一届董事会第二十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604505.PDF 
 
-贵州茅台 有1条新公告 
+格力电器:珠海格力电器股份有限公司对外投资公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604504.PDF 
 
-贵州茅台:贵州茅台第三届董事会2021年度第十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211589334.PDF 
+格力电器:北京市中伦（广州）律师事务所关于珠海格力电器股份有限公司调整第一期员工持股计划的法律意见书 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604503.PDF 
 
-顺丰控股 有2条新公告 
+格力电器:独立董事关于第十一届董事会第二十九次会议相关议案的独立意见 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604502.PDF 
 
-顺丰控股:上海澄明则正律师事务所关于顺丰控股股份有限公司2021年第四次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-11-16/1211588657.PDF 
+格力电器:第十一届监事会第二十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211604501.PDF 
 
-顺丰控股:2021年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211588656.PDF 
+分众传媒 有1条新公告 
 
-东方雨虹 有3条新公告 
+分众传媒:公司关于召开2021年第二次临时股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211602688.PDF 
 
-东方雨虹:北京市金杜律师事务所关于北京东方雨虹防水技术股份有限公司2021年第四次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-11-16/1211587838.PDF 
+上海机场 有1条新公告 
 
-东方雨虹:北京东方雨虹防水技术股份有限公司关于回购注销部分限制性股票减少注册资本暨通知债权人的公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211587837.PDF 
+上海机场:上海机场2021年10月运输生产情况简报 http://static.cninfo.com.cn/finalpage/2021-11-17/1211601302.PDF 
 
-东方雨虹:北京东方雨虹防水技术股份有限公司2021年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211587836.PDF 
+中兴通讯 有1条新公告 
 
-片仔癀 有1条新公告 
+中兴通讯:关于2020年股票期权激励计划首次授予的股票期权第一个行权期开始行权的公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211603224.PDF 
 
-片仔癀:漳州片仔癀药业股份有限公司关于收到《药品注册证书》的公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211586552.PDF 
+旗滨集团 有1条新公告 
 
-三安光电 有1条新公告 
+旗滨集团:旗滨集团关于中长期发展计划之第三期员工持股计划实施进展公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211602131.PDF 
 
-三安光电:三安光电股份有限公司关于第四期员工持股计划实施进展的公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211586365.PDF 
+长江电力 有3条新公告 
 
-韦尔股份 有1条新公告 
+长江电力:长江电力独立董事对于设立合资公司的意见 http://static.cninfo.com.cn/finalpage/2021-11-17/1211602832.PDF 
 
-韦尔股份:关于2021年股票期权与限制性股票激励计划股票期权授予登记完成的公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211586314.PDF 
+长江电力:长江电力关于与三峡集团云南能源投资有限公司成立合资公司暨关联交易公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211602831.PDF 
 
-汇顶科技 有1条新公告 
+长江电力:长江电力第五届董事会第二十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211602830.PDF 
 
-汇顶科技:关于以集中竞价交易方式回购公司股份事项实施完毕的公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211588240.PDF 
+东方雨虹 有1条新公告 
 
-永辉超市 有1条新公告 
+东方雨虹:北京东方雨虹防水技术股份有限公司关于完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211601737.PDF 
 
-永辉超市:永辉超市股份有限公司关于提前归还部分募集资金的公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211586405.PDF 
+金山办公 有2条新公告 
 
-公牛集团 有2条新公告 
+金山办公:北京市君合律师事务所关于金山办公2021年第二次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-11-17/1211603348.PDF 
 
-公牛集团:公牛集团2021年第二次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-11-16/1211586955.PDF 
+金山办公:金山办公2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211603347.PDF 
 
-公牛集团:公牛集团股份有限公司2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-11-16/1211586954.PDF 
+公牛集团 有1条新公告 
+
+公牛集团: 公牛集团股份有限公司关于控股股东股权结构变更的公告 http://static.cninfo.com.cn/finalpage/2021-11-17/1211601720.PDF 
 
