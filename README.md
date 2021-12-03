@@ -1,144 +1,128 @@
-混合所有制改革 有1条新公告 
+要约收购 有1条新公告 
 
-云海金属:独立董事关于公司参与宝玛克（合肥）科技有限公司混合所有制改革的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-12-03/1211776616.PDF 
+ST信通:亿阳信通关于大连万怡投资有限公司要约收购公司股份之第一次提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792898.PDF 
 
-并购重组 有5条新公告 
+并购重组 有2条新公告 
 
-*ST盈方:上市公司并购重组财务顾问专业意见附表第3号——发行股份购买资产 http://static.cninfo.com.cn/finalpage/2021-12-03/1211781056.PDF 
+*ST大唐:大唐电信科技股份有限公司关于发行股份购买资产并募集配套资金暨关联交易事项获得中国证监会上市公司并购重组审核委员会审核通过暨公司股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792893.PDF 
 
-*ST盈方:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2021-12-03/1211781055.PDF 
-
-*ST盈方:上市公司并购重组财务顾问专业意见问核表第1号——上市公司收购 http://static.cninfo.com.cn/finalpage/2021-12-03/1211781040.PDF 
-
-*ST大唐:大唐电信科技股份有限公司关于中国证监会上市公司并购重组审核委员会审核公司发行股份购买资产并募集配套资金暨关联交易事项的停牌公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211780021.PDF 
-
-柳    工:关于中国证监会上市公司并购重组审核委员会审核公司吸收合并事项的停牌公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778856.PDF 
+柳    工:关于公司发行股份吸收合并广西柳工集团机械有限公司暨关联交易事项获得中国证监会上市公司并购重组审核委员会审核通过暨公司股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792774.PDF 
 
 天味食品 有1条新公告 
 
-天味食品:关于使用部分闲置自有资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777007.PDF 
+天味食品:关于使用部分闲置募集资金进行现金管理到期赎回并继续进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211791997.PDF 
 
-科顺股份 有1条新公告 
+阳光电源 有10条新公告 
 
-科顺股份:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778973.PDF 
+阳光电源:中国国际金融股份有限公司关于阳光电源股份有限公司以债转股方式对控股子公司增资及控股子公司增资扩股实施股权激励暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792736.PDF 
 
-福耀玻璃 有1条新公告 
+阳光电源:关于修订公司章程的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792735.PDF 
 
-福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211776998.PDF 
+阳光电源:第四届董事会第十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792734.PDF 
 
-TCL科技 有8条新公告 
+阳光电源:公司章程 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792733.PDF 
 
-TCL科技:关于召开2021年第五次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779531.PDF 
+阳光电源:独立董事关于第四届董事会第十三次会议相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792732.PDF 
 
-TCL科技:关于面向专业投资者公开发行公司债券预案的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779530.PDF 
+阳光电源:独立董事关于第四届董事会第十三次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792731.PDF 
 
-TCL科技:关于对武汉华星增资暨投资第6代半导体新型显示器件生产线扩产项目的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779529.PDF 
+阳光电源:关于召开2021年第三次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792730.PDF 
 
-TCL科技:关于TCL定转1全部转股完成的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779528.PDF 
+阳光电源:关于以债转股方式对控股子公司增资及控股子公司增资扩股实施股权激励暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792729.PDF 
 
-TCL科技:公司章程（2021年12月） http://static.cninfo.com.cn/finalpage/2021-12-03/1211779527.PDF 
+阳光电源:第四届监事会第十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792728.PDF 
 
-TCL科技:独立董事对第七届董事会第十四次会议相关审议事项的事前认可函 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779526.PDF 
+阳光电源:关于子公司为子公司提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792727.PDF 
 
-TCL科技:独立董事对第七届董事会第十四次会议相关审议事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779525.PDF 
+新城控股 有1条新公告 
 
-TCL科技:第七届董事会第十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779524.PDF 
+新城控股:新城控股关于公司控股股东部分股份解质的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211791239.PDF 
 
-东方财富 有2条新公告 
+海螺水泥 有1条新公告 
 
-东方财富:东方财富信息股份有限公司关于境外子公司发行境外债券进展的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779580.PDF 
+海螺水泥:关于按期收回委托理财本金及收益的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790351.PDF 
 
-东方财富:东方财富信息股份有限公司关于控股股东股份解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779579.PDF 
+招商银行 有1条新公告 
 
-顺丰控股 有1条新公告 
+招商银行:招商银行股份有限公司关于招银理财有限责任公司获准增资扩股及变更注册资本的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211791977.PDF 
 
-顺丰控股:关于股东股份减持计划减持时间过半的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779732.PDF 
+恒瑞医药 有2条新公告 
 
-万孚生物 有15条新公告 
+恒瑞医药:关于公司药品纳入国家医保目录的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790203.PDF 
 
-万孚生物:2020年限制性股票激励计划实施考核管理办法（修订稿） http://static.cninfo.com.cn/finalpage/2021-12-03/1211777373.PDF 
+恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790202.PDF 
 
-万孚生物:2020年限制性股票激励计划（草案修订稿）摘要 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777372.PDF 
+中兴通讯 有1条新公告 
 
-万孚生物:2020年限制性股票激励计划（草案修订稿） http://static.cninfo.com.cn/finalpage/2021-12-03/1211777371.PDF 
+中兴通讯:关于按照《香港上市规则》公布2021年11月份证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792055.PDF 
 
-万孚生物:第四届董事会第六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777370.PDF 
+东方财富 有1条新公告 
 
-万孚生物:关于召开2021年第四次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777369.PDF 
+东方财富:东方财富信息股份有限公司关于公司高级管理人员减持股份的预披露公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792806.PDF 
 
-万孚生物:北京市中伦（广州）律师事务所关于广州万孚生物技术股份有限公司调整2020年限制性股票激励计划相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777368.PDF 
+长江电力 有1条新公告 
 
-万孚生物:北京市中伦（广州）律师事务所关于广州万孚生物技术股份有限公司2017年限制性股票激励计划相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777367.PDF 
+长江电力:长江电力关于筹划重大资产重组停牌的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790964.PDF 
 
-万孚生物:关于修订2020年限制性股票激励计划的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777366.PDF 
+立讯精密 有11条新公告 
 
-万孚生物:关于确认2017年限制性股票激励计划首次授予的限制性股票第四个解锁期解锁条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777365.PDF 
+立讯精密:2018年股票期权激励计划注销股票期权数量及人员名单 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792412.PDF 
 
-万孚生物:关于回购注销部分限制性股票的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777364.PDF 
+立讯精密:2018年股票期权激励计划人员名单（调整后） http://static.cninfo.com.cn/finalpage/2021-12-04/1211792411.PDF 
 
-万孚生物:第四届监事会第五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777363.PDF 
+立讯精密:2018年股票期权激励计划第三个行权期可行权激励对象名单 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792410.PDF 
 
-万孚生物:上海荣正投资咨询股份有限公司关于广州万孚生物技术股份有限公司修订2020年限制性股票激励计划之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777362.PDF 
+立讯精密:北京市天元（深圳）律师事务所关于立讯精密工业股份有限公司2018年股票期权激励计划调整行权数量、注销部分股票期权及第三个行权期行权条件成就的法律意见 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792409.PDF 
 
-万孚生物:广州万孚生物技术股份有限公司章程修订案（2021年12月） http://static.cninfo.com.cn/finalpage/2021-12-03/1211777361.PDF 
+立讯精密:关于2018年股票期权激励计划第三个行权期行权条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792408.PDF 
 
-万孚生物:独立董事关于第四届董事会第六次会议的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777360.PDF 
+立讯精密:关于调整2018年股票期权激励计划行权数量及注销部分股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792407.PDF 
 
-万孚生物:广州万孚生物技术股份有限公司章程（2021年12月） http://static.cninfo.com.cn/finalpage/2021-12-03/1211777359.PDF 
+立讯精密:北京市天元（深圳）律师事务所关于立讯精密工业股份有限公司2021年股票期权激励计划首次授予股票期权的法律意见 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792406.PDF 
 
-通威股份 有4条新公告 
+立讯精密:关于向2021年股票期权激励计划首次授予的激励对象授予股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792405.PDF 
 
-通威股份:中信建投证券股份有限公司关于通威股份有限公司固定资产减值的专项核查报告（修订稿） http://static.cninfo.com.cn/finalpage/2021-12-03/1211776534.PDF 
+立讯精密:独立董事关于相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792404.PDF 
 
-通威股份:华信会计师事务所关于《通威股份公开发行可转债发审委会议准备工作的函》之回复（修订稿） http://static.cninfo.com.cn/finalpage/2021-12-03/1211776533.PDF 
+立讯精密:第五届监事会第六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792403.PDF 
 
-通威股份:关于请做好通威股份有限公司公开发行可转债发审委会议准备工作的函的回复（修订稿） http://static.cninfo.com.cn/finalpage/2021-12-03/1211776532.PDF 
+立讯精密:第五届董事会第六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211792402.PDF 
 
-通威股份:通威股份有限公司关于公开发行可转债发审委会议准备工作告知函回复（修订）的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211776531.PDF 
+东方雨虹 有1条新公告 
 
-韦尔股份 有9条新公告 
+东方雨虹:关于对外担保的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211789956.PDF 
 
-韦尔股份:关于媒体报道的澄清公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779879.PDF 
+中信建投 有1条新公告 
 
-韦尔股份:北京市天元律师事务所 关于上海韦尔半导体股份有限公司2019年股票期权激励计 划注销部分股票期权的法律意见 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779878.PDF 
+中信建投:截至2021年11月30日止月份之股份發行人的證券變動月報表 http://static.cninfo.com.cn/finalpage/2021-12-04/1211789831.PDF 
 
-韦尔股份:关于注销公司2019年股票期权激励计划首次授予已到期未行权的股票期权的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779877.PDF 
+宁波银行 有10条新公告 
 
-韦尔股份:第五届监事会第四十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779876.PDF 
+宁波银行:宁波银行股份有限公司2021年第三次临时股东大会会议材料 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790916.PDF 
 
-韦尔股份:第五届董事会第五十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779875.PDF 
+宁波银行:宁波银行股份有限公司关于召开2021年第三次临时股东大会通知的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790915.PDF 
 
-韦尔股份:2021年股票期权与限制性股票激励计划限制性股票激励对象名单（调整后） http://static.cninfo.com.cn/finalpage/2021-12-03/1211779874.PDF 
+宁波银行:宁波银行股份有限公司关于获准发行金融债券的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790914.PDF 
 
-韦尔股份:北京市通商律师事务所关于上海韦尔半导体股份有限公司2021年股票期权与限制性股票激励计划调整授予对象及授予数量相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779873.PDF 
+宁波银行:中信建投证券股份有限公司及甬兴证券有限公司关于宁波银行股份有限公司2022年日常关联交易预计额度的核查意见 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790913.PDF 
 
-韦尔股份:独立董事对第五届董事会第五十一次会议相关议案的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779872.PDF 
+宁波银行:宁波银行股份有限公司中长期资本规划（2022年-2024年） http://static.cninfo.com.cn/finalpage/2021-12-04/1211790912.PDF 
 
-韦尔股份:关于调整2021年股票期权与限制性股票激励计划限制性股票激励对象名单及数量的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211779871.PDF 
+宁波银行:宁波银行股份有限公司未来三年（2022年-2024年）股东回报规划 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790911.PDF 
 
-中公教育 有1条新公告 
+宁波银行:宁波银行股份有限公司2022年日常关联交易预计额度的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790910.PDF 
 
-中公教育:关于持股5%以上股东部分股份质押提前购回的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778857.PDF 
+宁波银行:宁波银行股份有限公司独立董事关于相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790909.PDF 
 
-双汇发展 有8条新公告 
+宁波银行:宁波银行股份有限公司第七届监事会第九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790908.PDF 
 
-双汇发展:汇丰前海证券有限责任公司关于河南双汇投资发展股份有限公司2022年度日常关联交易预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778701.PDF 
+宁波银行:宁波银行股份有限公司第七届董事会第八次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790907.PDF 
 
-双汇发展:公司章程（2021年12月） http://static.cninfo.com.cn/finalpage/2021-12-03/1211778700.PDF 
+闻泰科技 有1条新公告 
 
-双汇发展:关于变更公司经营范围及修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778699.PDF 
+闻泰科技:关于参与投资私募基金的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211791094.PDF 
 
-双汇发展:关于召开2021年第二次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778698.PDF 
+长春高新 有1条新公告 
 
-双汇发展:关于2022年度日常关联交易预计的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778697.PDF 
-
-双汇发展:独立董事关于相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778696.PDF 
-
-双汇发展:独立董事关于公司2022年度日常关联交易预计提交董事会审议事前认可的书面意见 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778695.PDF 
-
-双汇发展:第八届董事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211778694.PDF 
-
-永辉超市 有1条新公告 
-
-永辉超市:永辉超市股份有限公司关于提前归还部分募集资金的公告 http://static.cninfo.com.cn/finalpage/2021-12-03/1211777381.PDF 
+长春高新:关于首次回购公司股份的公告 http://static.cninfo.com.cn/finalpage/2021-12-04/1211790324.PDF 
 
