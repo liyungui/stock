@@ -1,74 +1,108 @@
-并购重组 有1条新公告 
+要约收购 有2条新公告 
 
-乐通股份:关于中国证监会上市公司并购重组审核委员会工作会议安排的提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211866582.PDF 
+ST信通:亿阳信通关于大连万怡投资有限公司要约收购公司股份之第二次提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211878023.PDF 
 
-伊利股份 有6条新公告 
+陕鼓动力:中信证券股份有限公司关于西安工业投资集团有限公司免于发出要约收购西安陕鼓动力股份有限公司之持续督导总结报告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211877819.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于签订募集资金三方监管协议的公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864187.PDF 
+天味食品 有1条新公告 
 
-伊利股份:内蒙古伊利实业集团股份有限公司募集资金到位验资报告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864186.PDF 
+天味食品:关于使用部分闲置募集资金进行现金管理到期赎回并继续进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874136.PDF 
 
-伊利股份:北京市天元律师事务所关于内蒙古伊利实业集团股份有限公司2021年非公开发行A股股票发行过程及认购对象合规性的法律意见 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864185.PDF 
+分众传媒 有1条新公告 
 
-伊利股份:中信证券股份有限公司关于内蒙古伊利实业集团股份有限公司2021年非公开发行A股股票发行过程和认购对象合规性的报告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864184.PDF 
+分众传媒:公司关于获得政府补助的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211875920.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司2021年非公开发行A股股票发行情况报告书 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864183.PDF 
+招商银行 有1条新公告 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于2021年非公开发行A股股票发行情况报告书披露的提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864182.PDF 
+招商银行:招商银行股份有限公司境内优先股股息派发实施公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211877040.PDF 
 
 海康威视 有1条新公告 
 
-海康威视:关于参与设立的创业投资合伙企业完成工商登记的公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865608.PDF 
+海康威视:关于部分国有股份无偿划转的提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211877089.PDF 
 
-贵州茅台 有1条新公告 
+牧原股份 有1条新公告 
 
-贵州茅台:贵州茅台第三届董事会2021年度第十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211866672.PDF 
+牧原股份:关于股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876797.PDF 
 
-东方财富 有1条新公告 
+海天味业 有1条新公告 
 
-东方财富:东方财富信息股份有限公司关于子公司东方财富证券股份有限公司2021年度第十一期短期融资券发行情况的公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865831.PDF 
+海天味业:海天味业对外投资公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876399.PDF 
 
-长江电力 有4条新公告 
+药明康德 有1条新公告 
 
-长江电力:长江电力三峡水电站购售电及输电合同公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864590.PDF 
+药明康德:关于参股公司CANBRIDGE PHARMACEUTICALS INC.在香港联交所主板挂牌上市的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211878028.PDF 
 
-长江电力:长江电力溪洛渡左岸电站购售电合同公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864589.PDF 
+三一重工 有9条新公告 
 
-长江电力:长江电力向家坝水电站购售电合同公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864588.PDF 
+三一重工:三一重工股份有限公司关于召开2021年第四次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876395.PDF 
 
-长江电力:长江电力三峡水电站购售电合同公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211864587.PDF 
+三一重工:三一重工股份有限公司第七届监事会第十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876394.PDF 
 
-立讯精密 有6条新公告 
+三一重工:三一重工股份有限公关于子公司开展期货套期保值业务的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876392.PDF 
 
-立讯精密:北京市天元（深圳）律师事务所关于立讯精密工业股份有限公司2021年股票期权激励计划首次授予股票期权的法律意见 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865744.PDF 
+三一重工:三一重工股份有限公司关于为子公司提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876391.PDF 
 
-立讯精密:监事会关于2021年股票期权激励计划首次授予的激励对象名单的核查意见 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865743.PDF 
+三一重工:三一重工股份有限公司关于增加2021年度日常关联交易额度的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876390.PDF 
 
-立讯精密:关于2021年股票期权激励计划首次授予登记完成的公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865742.PDF 
+三一重工:三一重工股份有限公司独立董事意见 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876389.PDF 
 
-立讯精密:独立董事关于向公司2021年股票期权激励计划首次授予的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865741.PDF 
+三一重工:三一重工股份有限公司独立董事对关联交易事前认可意见 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876388.PDF 
 
-立讯精密:关于2018年股票期权激励计划第三个行权期采用自主行权模式的提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865721.PDF 
+三一重工:三一重工股份有限公司关于在关联银行开展存贷款及理财业务的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876387.PDF 
 
-立讯精密:关于部分股票期权注销完成的公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865230.PDF 
+三一重工:三一重工股份有限公司第七届董事会第二十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876386.PDF 
 
 顺丰控股 有1条新公告 
 
-顺丰控股:关于华泰佳越-顺丰产业园一期第1号资产支持专项计划的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211866683.PDF 
+顺丰控股:关于股东股份减持计划减持数量过半的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211876793.PDF 
 
-片仔癀 有5条新公告 
+东方雨虹 有3条新公告 
 
-片仔癀:漳州片仔癀药业股份有限公司第六届董事会第四十一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865818.PDF 
+东方雨虹:关于为下属公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874025.PDF 
 
-片仔癀:漳州片仔癀药业股份有限公司关于调整董事会专业委员会的公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865817.PDF 
+东方雨虹:关于公司控股股东部分股份质押及解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874024.PDF 
 
-片仔癀:漳州片仔癀药业股份有限公司关于董事长辞职的公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865816.PDF 
+东方雨虹:关于签订项目投资协议的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874022.PDF 
 
-片仔癀:泰和泰（北京）律师事务所关于漳州片仔癀药业股份有限公司2021年第二次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865815.PDF 
+昭衍新药 有2条新公告 
 
-片仔癀:漳州片仔癀药业股份有限公司2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211865814.PDF 
+昭衍新药:关于购买昭衍生物B+轮优先股的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211877823.PDF 
+
+昭衍新药:昭衍新药关于投资昭衍生物的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211877822.PDF 
+
+通威股份 有5条新公告 
+
+通威股份:中信建投证券股份有限公司关于通威股份有限公司使用部分闲置募集资金临时补充流动资金的核查意见 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874091.PDF 
+
+通威股份:通威股份独立董事关于使用部分闲置募集资金临时补充流动资金的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874090.PDF 
+
+通威股份:通威股份有限公司关于使用部分闲置募集资金临时补充流动资金的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874089.PDF 
+
+通威股份:通威股份有限公司第七届监事会第二十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874088.PDF 
+
+通威股份:通威股份有限公司第七届董事会第二十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874087.PDF 
+
+三安光电 有1条新公告 
+
+三安光电:三安光电股份有限公司关于控股股东部分股份质押及解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874974.PDF 
 
 韦尔股份 有1条新公告 
 
-韦尔股份:关于收到上海证券交易所有关监管工作函及回复的公告 http://static.cninfo.com.cn/finalpage/2021-12-10/1211866134.PDF 
+韦尔股份:关于2021年股票期权与限制性股票激励计划限制性股票授予登记完成的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211875227.PDF 
+
+闻泰科技 有1条新公告 
+
+闻泰科技:关于收购广州得尔塔影像技术有限公司100%股权及相关经营性资产的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874103.PDF 
+
+用友网络 有1条新公告 
+
+用友网络:用友网络高管集中竞价减持股份结果公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211878026.PDF 
+
+汇顶科技 有1条新公告 
+
+汇顶科技:关于控股股东部分股份质押解除的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211873871.PDF 
+
+公牛集团 有1条新公告 
+
+公牛集团:公牛集团股份有限公司关于归还部分暂时补充流动资金的闲置募集资金的公告 http://static.cninfo.com.cn/finalpage/2021-12-11/1211874134.PDF 
 
