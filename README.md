@@ -1,32 +1,70 @@
-要约收购 有3条新公告 
+并购重组 有3条新公告 
 
-华民股份:广东华商（长沙）律师事务所关于欧阳少红认购湖南华民控股集团股份有限公司向特定对象发行股票涉及的豁免要约收购事宜之法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-16/1211922758.PDF 
+菲达环保:上市公司并购重组财务顾问专业意见附表第3号——发行股份购买资产 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933900.PDF 
 
-粤 水 电:北京市金杜（广州）律师事务所关于广东省建筑工程集团控股有限公司免于发出收购要约相关事项之法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-16/1211922736.PDF 
+菲达环保:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933899.PDF 
 
-金圆股份:上海东方华银律师事务所关于赵辉认购金圆环保股份有限公司非公开发行股票涉及的豁免要约收购事宜的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-16/1211921941.PDF 
+东方盛虹:关于中国证监会上市公司并购重组审核委员会工作会议安排的提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211932898.PDF 
 
-并购重组 有2条新公告 
+德赛电池 有2条新公告 
 
-京城股份:京城股份关于发行股份及支付现金购买资产并募集配套资金事项获得中国证监会上市公司并购重组审核委员会有条件审核通过暨公司A股股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-12-16/1211922747.PDF 
+德赛电池:第十届董事会第六次(临时)会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933457.PDF 
 
-乐通股份:关于公司发行股份及支付现金购买资产事项经中国证监会上市公司并购重组审核委员会审核未获通过暨公司股票复牌的公告 http://static.cninfo.com.cn/finalpage/2021-12-16/1211922615.PDF 
+德赛电池:关于拟合资设立控股子公司开展储能电芯业务的公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933456.PDF 
 
-兴业银行 有1条新公告 
+兴业银行 有3条新公告 
 
-兴业银行:兴业银行关于公开发行A股可转换公司债券申请获得中国证券监督管理委员会核准批文的公告 http://static.cninfo.com.cn/finalpage/2021-12-16/1211920932.PDF 
+兴业银行:兴业银行关于给予龙岩文旅汇金集团系列关联交易额度的公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211932532.PDF 
 
-格力电器 有1条新公告 
+兴业银行:兴业银行第十届董事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211932531.PDF 
 
-格力电器:关于第一期员工持股计划完成股票非交易过户的公告 http://static.cninfo.com.cn/finalpage/2021-12-16/1211922697.PDF 
+兴业银行:兴业银行第八届监事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211932530.PDF 
 
-东方雨虹 有1条新公告 
+恒瑞医药 有1条新公告 
 
-东方雨虹:关于对外担保的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-16/1211921286.PDF 
+恒瑞医药:江苏恒瑞医药股份有限公司2021年第二次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-12-17/1211931438.PDF 
 
-三安光电 有2条新公告 
+中兴通讯 有7条新公告 
 
-三安光电:三安光电股份有限公司关于收到中国证监会行政许可项目审查一次反馈意见通知书的公告 http://static.cninfo.com.cn/finalpage/2021-12-16/1211921721.PDF 
+中兴通讯:中信建投证券股份有限公司关于公司日常关联交易预计的核查意见 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933750.PDF 
 
-三安光电:三安光电股份有限公司关于第四期员工持股计划实施进展的公告 http://static.cninfo.com.cn/finalpage/2021-12-16/1211921720.PDF 
+中兴通讯:关于《深圳证券交易所股票上市规则》下日常关联交易预计公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933749.PDF 
+
+中兴通讯:中信建投证券股份有限公司关于公司与关联方中兴和泰签订《2022-2023年房地产及设备设施租赁框架协议》暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933748.PDF 
+
+中兴通讯:关于子公司之间提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933747.PDF 
+
+中兴通讯:关于与关联方中兴和泰签订《2022-2023年房地产及设备设施租赁框架协议》的关联交易公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933746.PDF 
+
+中兴通讯:第八届监事会第三十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933745.PDF 
+
+中兴通讯:第八届董事会第四十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933744.PDF 
+
+药明康德 有1条新公告 
+
+药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211932644.PDF 
+
+歌尔股份 有2条新公告 
+
+歌尔股份:2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211932505.PDF 
+
+歌尔股份:北京市天元律师事务所关于歌尔股份有限公司2021年第二次临时股东大会的法律意见 http://static.cninfo.com.cn/finalpage/2021-12-17/1211932504.PDF 
+
+中公教育 有2条新公告 
+
+中公教育:关于持股5%以上股东部分股份质押的公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211934453.PDF 
+
+中公教育:关于收到中国证券监督管理委员会立案告知书的公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211934452.PDF 
+
+双汇发展 有1条新公告 
+
+双汇发展:关于使用闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211933652.PDF 
+
+闻泰科技 有1条新公告 
+
+闻泰科技:关于股东解除部分股权质押的公告 http://static.cninfo.com.cn/finalpage/2021-12-17/1211931446.PDF 
+
+永辉超市 有1条新公告 
+
+永辉超市:永辉超市股份有限公司2021年第二次临时股东大会资料 http://static.cninfo.com.cn/finalpage/2021-12-17/1211931453.PDF 
 
