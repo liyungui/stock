@@ -1,46 +1,60 @@
-要约收购 有2条新公告 
+并购重组 有1条新公告 
 
-仁智股份:关于提请股东大会批准平达新材料有限公司免于以要约收购方式增持股份的公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211972136.PDF 
+东方盛虹:关于中国证监会上市公司并购重组审核委员会审核公司重大资产重组事项的停牌公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211980814.PDF 
 
-*ST巴士:关于提请公司股东大会批准免于要约收购的公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211971927.PDF 
+兴业银行 有1条新公告 
 
-恒瑞医药 有1条新公告 
+兴业银行:兴业银行关于私人银行部获准开业的公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211980491.PDF 
 
-恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211969195.PDF 
+伟星新材 有6条新公告 
 
-中兴通讯 有1条新公告 
+伟星新材:上海荣正投资咨询股份有限公司关于浙江伟星新型建材股份有限第三期股权激励计划第一个限售期解除限售条件成就之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978304.PDF 
 
-中兴通讯:关于参与认购的红土湛卢基金募集完毕的公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211970322.PDF 
+伟星新材:北京市博金律师事务所关于浙江伟星新型建材股份有限公司第三期股权激励计划第一次解除限售事项的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978303.PDF 
 
-TCL科技 有2条新公告 
+伟星新材:独立董事相关意见 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978302.PDF 
 
-TCL科技:2021年第五次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-21/1211970871.PDF 
+伟星新材:关于第三期股权激励计划第一个限售期解除限售条件成就的公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978301.PDF 
 
-TCL科技:2021年第五次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211970870.PDF 
+伟星新材:第五届监事会第十二次（临时）会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978300.PDF 
+
+伟星新材:第五届董事会第十三次（临时）会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978299.PDF 
 
 牧原股份 有1条新公告 
 
-牧原股份:关于召开2021年第五次临时股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211970400.PDF 
+牧原股份:优先股股息发放实施公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211980924.PDF 
 
-三一重工 有1条新公告 
+旗滨集团 有5条新公告 
 
-三一重工:三一重工股份有限公司2021年第四次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2021-12-21/1211969520.PDF 
+旗滨集团:旗滨集团关于理财产品投资的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978869.PDF 
 
-千禾味业 有1条新公告 
+旗滨集团:旗滨集团关于不提前赎回“旗滨转债”的公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978868.PDF 
 
-千禾味业:千禾味业关于董事辞职的公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211968740.PDF 
+旗滨集团:旗滨集团第四届监事会第三十七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978867.PDF 
 
-宁波银行 有2条新公告 
+旗滨集团:旗滨集团关于不提前赎回旗滨转债的独立董事意见 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978866.PDF 
 
-宁波银行:宁波银行股份有限公司2021年第三次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211971323.PDF 
+旗滨集团:旗滨集团第四届董事会第三十七次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211978865.PDF 
 
-宁波银行:浙江波宁律师事务所关于宁波银行股份有限公司2021年第三次临时股东大会之法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-21/1211971322.PDF 
+东方雨虹 有1条新公告 
 
-双汇发展 有3条新公告 
+东方雨虹:关于公司控股股东进行股票质押式回购交易的公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211979046.PDF 
 
-双汇发展:北京市通商律师事务所关于河南双汇投资发展股份有限公司2021年第二次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-21/1211971810.PDF 
+三安光电 有1条新公告 
 
-双汇发展:2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-21/1211971809.PDF 
+三安光电:三安光电股份有限公司关于第四期员工持股计划购买完成的公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211980410.PDF 
 
-双汇发展:公司章程（2021年12月） http://static.cninfo.com.cn/finalpage/2021-12-21/1211971808.PDF 
+韦尔股份 有1条新公告 
+
+韦尔股份:关于可转换公司债券2021年度付息的公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211979493.PDF 
+
+中公教育 有1条新公告 
+
+中公教育:关于持股5%以上股东部分股份补充质押、质押担保及解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211981327.PDF 
+
+公牛集团 有2条新公告 
+
+公牛集团:上海仁盈律师事务所关于公牛集团2020年限制性股票激励计划、2021年限制性股票激励计划回购注销部分限制性股票实施的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-22/1211979936.PDF 
+
+公牛集团:公牛集团股份有限公司部分股权激励限制性股票回购注销实施公告 http://static.cninfo.com.cn/finalpage/2021-12-22/1211979935.PDF 
 
