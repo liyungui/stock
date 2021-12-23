@@ -1,76 +1,70 @@
-要约收购 有1条新公告 
+并购重组 有1条新公告 
 
-文科园林:关于拟提请股东大会审议同意佛山市建设开发投资有限公司免于发出收购要约的公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211991991.PDF 
+远兴能源:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2021-12-24/1212001629.PDF 
 
-混合所有制改革 有1条新公告 
+邮储银行 有3条新公告 
 
-浙商证券:浙商证券股份有限公司关于全资子公司浙商期货有限公司混合所有制改革方案暨在浙江产交所挂牌的公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988071.PDF 
+邮储银行:中国邮政储蓄银行股份有限公司信息披露管理办法（2021年修订版） http://static.cninfo.com.cn/finalpage/2021-12-24/1212001979.PDF 
 
-科顺股份 有1条新公告 
+邮储银行:中国邮政储蓄银行股份有限公司董事会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212001978.PDF 
 
-科顺股份:国元证券股份有限公司关于公司持续督导培训的报告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988307.PDF 
+邮储银行:中国邮政储蓄银行股份有限公司监事会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212001977.PDF 
 
-金龙鱼 有2条新公告 
+伊利股份 有1条新公告 
 
-金龙鱼:首次公开发行部分战略配售股份上市流通提示性公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211989854.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于境外全资子公司参与认购境外私募股权基金份额的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000860.PDF 
 
-金龙鱼:中信建投证券股份有限公司关于益海嘉里金龙鱼粮油食品股份有限公司首次公开发行部分战略配售股份上市流通的核查意见 http://static.cninfo.com.cn/finalpage/2021-12-23/1211989852.PDF 
+格力电器 有1条新公告 
 
-兴业银行 有5条新公告 
+格力电器:关于子公司之间提供担保的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212002600.PDF 
 
-兴业银行:兴业银行公开发行可转换公司债券网上路演公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211990903.PDF 
+福耀玻璃 有1条新公告 
 
-兴业银行:兴业银行公开发行A股可转换公司债券信用评级报告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211990902.PDF 
+福耀玻璃:福耀玻璃关于超短期融资券获准注册的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212001408.PDF 
 
-兴业银行:兴业银行公开发行可转换公司债券发行公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211990901.PDF 
+恒瑞医药 有1条新公告 
 
-兴业银行:兴业银行公开发行A股可转换公司债券募集说明书 http://static.cninfo.com.cn/finalpage/2021-12-23/1211990900.PDF 
+恒瑞医药:恒瑞医药关于子公司获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212001407.PDF 
 
-兴业银行:兴业银行公开发行A股可转换公司债券募集说明书摘要 http://static.cninfo.com.cn/finalpage/2021-12-23/1211990899.PDF 
+立讯精密 有1条新公告 
 
-牧原股份 有2条新公告 
+立讯精密:关于2018年股票期权激励计划第三个行权期采用自主行权模式的提示性公告（更正后） http://static.cninfo.com.cn/finalpage/2021-12-24/1212003085.PDF 
 
-牧原股份:北京市康达律师事务所关于牧原食品股份有限公司2021年第五次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-23/1211991548.PDF 
+中国中免 有8条新公告 
 
-牧原股份:2021年第五次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211991547.PDF 
+中国中免:中国旅游集团中免股份有限公司关于召开2022年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000327.PDF 
 
-片仔癀 有2条新公告 
+中国中免:中国旅游集团中免股份有限公司独立董事关于续聘会计师事务所的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000326.PDF 
 
-片仔癀:漳州片仔癀药业股份有限公司独立董事关于2020年度高级管理人员薪酬的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-23/1211989514.PDF 
+中国中免:中国旅游集团中免股份有限公司独立董事关于续聘会计师事务所的事前认可意见 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000325.PDF 
 
-片仔癀:漳州片仔癀药业股份有限公司第六届董事会第四十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211989513.PDF 
+中国中免:中国旅游集团中免股份有限公司董事会审计委员会关于续聘会计师事务所的书面审查意见 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000324.PDF 
 
-三安光电 有1条新公告 
+中国中免:中国旅游集团中免股份有限公司关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000323.PDF 
 
-三安光电:三安光电股份有限公司全资子公司获得政府补助的公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988711.PDF 
+中国中免:中国旅游集团中免股份有限公司董事会向经理层授权管理办法 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000322.PDF 
 
-韦尔股份 有1条新公告 
+中国中免:中国旅游集团中免股份有限公司第四届董事会第十九次会议（通讯方式）决议公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000321.PDF 
 
-韦尔股份:平安证券股份有限公司关于上海韦尔半导体股份有限公司2021年持续督导现场检查报告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211987924.PDF 
+中国中免:中国旅游集团中免股份有限公司关于增加信息披露媒体的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000320.PDF 
 
-长春高新 有4条新公告 
+通威股份 有2条新公告 
 
-长春高新:关于子公司取得利斯的明透皮贴剂产品相关权益的公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988825.PDF 
+通威股份:通威股份有限公司关于收到中国证监会核准公司公开发行可转换公司债券的批复的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212001232.PDF 
 
-长春高新:关于收购杭州沃维医疗生物科技有限公司部分股权的对外投资公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988824.PDF 
+通威股份:通威股份有限公司关于归还暂时补充流动资金的闲置募集资金的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212001231.PDF 
 
-长春高新:第十届董事会第九次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988823.PDF 
+歌尔股份 有1条新公告 
 
-长春高新:独立董事关于第十届董事会第九次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988821.PDF 
+歌尔股份:关于实际控制人及其一致行动人部分股份解除质押的公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212001288.PDF 
 
-永辉超市 有5条新公告 
+双汇发展 有1条新公告 
 
-永辉超市:永辉超市股份有限公司2021年第二次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988905.PDF 
+双汇发展:关于使用闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212003523.PDF 
 
-永辉超市:永辉超市股份有限公司2021年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988904.PDF 
+兆易创新 有2条新公告 
 
-永辉超市:永辉超市股份有限公司关于第五届监事会第一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988903.PDF 
+兆易创新:兆易创新验资报告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000652.PDF 
 
-永辉超市:永辉超市股份有限公司独立董事关于公司第五届董事会第一次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988902.PDF 
-
-永辉超市:永辉超市股份有限公司关于第五届董事会第一次会议决议公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211988901.PDF 
-
-公牛集团 有1条新公告 
-
-公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2021-12-23/1211987916.PDF 
+兆易创新:兆易创新2021年股票期权与限制性股票激励计划限制性股票暂缓授予结果公告 http://static.cninfo.com.cn/finalpage/2021-12-24/1212000651.PDF 
 
