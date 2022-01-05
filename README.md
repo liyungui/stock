@@ -1,102 +1,76 @@
 要约收购 有1条新公告 
 
-云南白药:关于云白药香港有限公司拟全面要约收购万隆控股集团有限公司全部股份暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095896.PDF 
+岭南控股:万联证券股份有限公司关于广州岭南集团控股股份有限公司收购报告书暨免于发出要约收购申请之财务顾问报告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212104018.PDF 
 
-兴业银行 有1条新公告 
+科顺股份 有2条新公告 
 
-兴业银行:兴业银行关于签署公开发行A股可转换公司债券募集资金专户存储监管协议的公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212092510.PDF 
+科顺股份:关于股份回购完成的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212104097.PDF 
 
-上海机场 有12条新公告 
+科顺股份:关于第一期员工持股计划实施进展的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212104096.PDF 
 
-上海机场:上海机场备考审阅报告-天职业字[2021]46114号 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095544.PDF 
+伊利股份 有1条新公告 
 
-上海机场:上海机场集团物流发展有限公司审计报告-天职业字[2021]45826号 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095483.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于2021年度第三十四期超短期融资券发行结果的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212101353.PDF 
 
-上海机场:上海虹桥国际机场责任有限公司模拟审计报告-天职业字[2021]45825号 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095482.PDF 
+安琪酵母 有1条新公告 
 
-上海机场:上海市锦天城律师事务所关于上海国际机场股份有限公司发行股份购买资产并募集配套资金暨关联交易之补充法律意见书（一） http://static.cninfo.com.cn/finalpage/2022-01-05/1212095481.PDF 
+安琪酵母:安琪酵母股份有限公司关于收到政府补助的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212102014.PDF 
 
-上海机场:上海国际机场股份有限公司发行股份购买资产并募集配套资金暨关联交易报告书（草案）摘要（修订稿） http://static.cninfo.com.cn/finalpage/2022-01-05/1212095480.PDF 
+伟星新材 有1条新公告 
 
-上海机场:上海机场关于《上海国际机场股份有限公司发行股份购买资产并募集配套资金暨关联交易报告书（草案）》修订说明的公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095479.PDF 
+伟星新材:关于控股股东部分股份解除质押及再质押的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212100777.PDF 
 
-上海机场:上海机场独立董事关于第八届董事会第二十三次会议相关事宜的独立意见 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095478.PDF 
+福耀玻璃 有1条新公告 
 
-上海机场:上海机场独立董事关于第八届董事会第二十三次会议相关事宜的事前认可意见 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095477.PDF 
+福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212102497.PDF 
 
-上海机场:上海机场第八届董事会第二十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095476.PDF 
+中顺洁柔 有1条新公告 
 
-上海机场:上海机场第八届监事会第十六次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095475.PDF 
+中顺洁柔:关于股份回购期限届满暨股份回购实施结果的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212100776.PDF 
 
-上海机场:国泰君安证券股份有限公司关于上海机场发行股份购买资产并募集配套资金暨关联交易之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095474.PDF 
+恒瑞医药 有1条新公告 
 
-上海机场:上海国际机场股份有限公司发行股份购买资产并募集配套资金暨关联交易报告书（草案）（修订稿） http://static.cninfo.com.cn/finalpage/2022-01-05/1212095473.PDF 
+恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212101049.PDF 
 
-瀚蓝环境 有1条新公告 
+万科A 有2条新公告 
 
-瀚蓝环境:2022年度第一期超短期融资券发行结果公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212094361.PDF 
+万科A:2021年12月销售及近期新增项目情况简报 http://static.cninfo.com.cn/finalpage/2022-01-06/1212104442.PDF 
 
-万科A 有1条新公告 
+万科A:关于按照《香港上市规则》公布2021年12月证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212104441.PDF 
 
-万科A:万科企业股份有限公司关于拟下调“19万科01”公司债券票面利率的第二次提示性公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095037.PDF 
+中兴通讯 有1条新公告 
 
-东方财富 有1条新公告 
-
-东方财富:东方财富信息股份有限公司2021年第四季度可转换公司债券转股情况公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212094896.PDF 
+中兴通讯:关于按照《香港上市规则》公布2021年12月份证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212102563.PDF 
 
 牧原股份 有1条新公告 
 
-牧原股份:关于股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095471.PDF 
+牧原股份:2021年12月份生猪销售简报 http://static.cninfo.com.cn/finalpage/2022-01-06/1212103396.PDF 
 
-旗滨集团 有1条新公告 
+万华化学 有1条新公告 
 
-旗滨集团:旗滨集团关于可转换公司债券转股结果暨股份变动的公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212093501.PDF 
+万华化学:万华化学关于变更2021年度审计签字注册会计师的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212102124.PDF 
 
-立讯精密 有1条新公告 
+隆基股份 有2条新公告 
 
-立讯精密:2021年第四季度可转换公司债券转股情况公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212092660.PDF 
+隆基股份:隆基股份关于2022年第一次临时股东大会变更会议地点的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212102823.PDF 
 
-药明康德 有2条新公告 
+隆基股份:隆基股份公开发行可转换公司债券网上中签率及优先配售结果公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212102821.PDF 
 
-药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212094366.PDF 
+中信建投 有1条新公告 
 
-药明康德:关于2019年限制性股票与股票期权激励计划首次授予股票期权2021年第四季度自主行权结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212094007.PDF 
+中信建投:截至2021年12月31日止月份之股份發行人的證券變動月報表 http://static.cninfo.com.cn/finalpage/2022-01-06/1212101061.PDF 
 
-中国中免 有1条新公告 
+闻泰科技 有2条新公告 
 
-中国中免:中国旅游集团中免股份有限公司2022年第一次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-01-05/1212092063.PDF 
+闻泰科技:华泰联合证券有限责任公司关于闻泰科技股份有限公司公开发行可转换公司债券持续督导的现场检查报告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212101726.PDF 
 
-三一重工 有1条新公告 
+闻泰科技:关于归还部分暂时补充流动资金的募集资金的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212101053.PDF 
 
-三一重工:三一重工股份有限公司期权自主行权结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212094128.PDF 
+汇顶科技 有1条新公告 
 
-顺丰控股 有1条新公告 
+汇顶科技:关于股票期权2021年第四季度自主行权结果暨股份变动的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212100790.PDF 
 
-顺丰控股:关于股东股份减持计划期限届满暨实施情况的公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095361.PDF 
+公牛集团 有1条新公告 
 
-隆基股份 有1条新公告 
-
-隆基股份:隆基股份公开发行可转换公司债券发行提示性公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212092412.PDF 
-
-韦尔股份 有2条新公告 
-
-韦尔股份:关于可转债转股及股权激励计划自主行权结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212092970.PDF 
-
-韦尔股份:控股股东减持股份结果公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212092969.PDF 
-
-闻泰科技 有1条新公告 
-
-闻泰科技:关于2020年股票期权与限制性股票激励计划2021年第四季度自主行权结果暨股份变动的公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212092507.PDF 
-
-长春高新 有1条新公告 
-
-长春高新:关于股份回购进展情况的公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095344.PDF 
-
-云南白药 有1条新公告 
-
-云南白药:关于云白药香港有限公司拟全面要约收购万隆控股集团有限公司全部股份暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212095896.PDF 
-
-深南电路 有1条新公告 
-
-深南电路:关于非公开发行股票申请获得中国证监会核准批文的公告 http://static.cninfo.com.cn/finalpage/2022-01-05/1212094353.PDF 
+公牛集团:公牛集团股份有限公司关于归还部分暂时补充流动资金的闲置募集资金的公告 http://static.cninfo.com.cn/finalpage/2022-01-06/1212101084.PDF 
 
