@@ -1,46 +1,38 @@
-伊利股份 有1条新公告 
+金域医学 有1条新公告 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于全资子公司内蒙古惠商融资担保有限公司2021年第四季度对外担保情况公告 http://static.cninfo.com.cn/finalpage/2022-01-12/1212145380.PDF 
+金域医学:广州金域医学检验集团股份有限公司关于许昌警方通报事件的说明公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212162759.PDF 
 
-兴业银行 有2条新公告 
+伊利股份 有8条新公告 
 
-兴业银行:兴业银行关于发行金融债券获中国银保监会批复的公告 http://static.cninfo.com.cn/finalpage/2022-01-12/1212146819.PDF 
+伊利股份:中信证券股份有限公司关于内蒙古伊利实业集团股份有限公司使用募集资金向全资子公司实缴出资并增资以实施募投项目的核查意见 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158531.PDF 
 
-兴业银行:兴业银行公开发行A股可转换公司债券上市公告书 http://static.cninfo.com.cn/finalpage/2022-01-12/1212146818.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于使用募集资金向全资子公司实缴出资并增资以实施募投项目的公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158530.PDF 
 
-海康威视 有1条新公告 
+伊利股份:内蒙古伊利实业集团股份有限公司第十届监事会临时会议决议公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158529.PDF 
 
-海康威视:关于监事会对2021年限制性股票计划激励对象名单审核及公示情况说明的公告 http://static.cninfo.com.cn/finalpage/2022-01-12/1212146011.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司独立董事关于第十届董事会临时会议相关议案的独立意见 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158528.PDF 
 
-恒瑞医药 有1条新公告 
+伊利股份:内蒙古伊利实业集团股份有限公司关于以自筹资金预先投入募集资金投资项目及支付发行费用的鉴证报告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158527.PDF 
 
-恒瑞医药:恒瑞医药关于获得美国FDA临床试验资格的公告 http://static.cninfo.com.cn/finalpage/2022-01-12/1212145685.PDF 
+伊利股份:中信证券股份有限公司关于内蒙古伊利实业集团股份有限公司使用募集资金置换预先投入募投项目及已支付发行费用的自筹资金的核查意见 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158526.PDF 
 
-万科A 有1条新公告 
+伊利股份:内蒙古伊利实业集团股份有限公司关于使用募集资金置换预先投入资金的公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158525.PDF 
 
-万科A:关于为新疆万科融资提供担保的公告 http://static.cninfo.com.cn/finalpage/2022-01-12/1212147926.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司第十届董事会临时会议决议公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158524.PDF 
 
-药明康德 有2条新公告 
+牧原股份 有2条新公告 
 
-药明康德:上海市方达律师事务所关于无锡药明康德新药开发股份有限公司回购注销2018年激励计划和2019年激励计划项下部分限制性股票相关事项的法律意见 http://static.cninfo.com.cn/finalpage/2022-01-12/1212145996.PDF 
+牧原股份:关于非公开发行A股股票申请获中国证监会受理的公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212159863.PDF 
 
-药明康德:关于股权激励限制性股票回购注销实施公告 http://static.cninfo.com.cn/finalpage/2022-01-12/1212145995.PDF 
+牧原股份:关于股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212159862.PDF 
 
-昭衍新药 有1条新公告 
+立讯精密 有1条新公告 
 
-昭衍新药:昭衍新药2022年第一次临时股东大会、2022年第一次A股类别股东会议及2022年第一次H股类别股东会议会议资料 http://static.cninfo.com.cn/finalpage/2022-01-12/1212145759.PDF 
+立讯精密:关于“立讯转债“转股价格调整的公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212159090.PDF 
 
-隆基股份 有1条新公告 
+中国中免 有2条新公告 
 
-隆基股份:隆基股份关于控股股东股份解除质押的公告 http://static.cninfo.com.cn/finalpage/2022-01-12/1212145992.PDF 
+中国中免:北京市嘉源律师事务所关于中国旅游集团中免股份有限公司二Ｏ二二年第一次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158258.PDF 
 
-金山办公 有2条新公告 
-
-金山办公:中国国际金融股份有限公司关于北京金山办公软件股份有限公司股东向特定机构投资者询价转让股份相关资格的核查意见 http://static.cninfo.com.cn/finalpage/2022-01-12/1212147691.PDF 
-
-金山办公:金山办公股东询价转让计划书 http://static.cninfo.com.cn/finalpage/2022-01-12/1212147690.PDF 
-
-公牛集团 有1条新公告 
-
-公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2022-01-12/1212144842.PDF 
+中国中免:中国旅游集团中免股份有限公司2022年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-01-13/1212158257.PDF 
 
