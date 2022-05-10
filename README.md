@@ -1,92 +1,114 @@
-要约收购 有7条新公告 
+要约收购 有4条新公告 
 
-杭齿前进:关于杭州萧山国有资产经营集团有限公司要约收购公司股份结果暨股票复牌的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213301411.PDF 
+泉阳泉:中信证券股份有限公司关于吉林省吉盛资产管理有限公司免于发出要约收购公司的2021年度及2022年一季度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-05-11/1213310425.PDF 
 
-山西路桥:中信证券股份有限公司关于山西路桥股份有限公司收购报告书暨豁免要约收购之2022年一季度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-05-10/1213301099.PDF 
+路畅科技:关于中联重科股份有限公司要约收购公司股份完成过户的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213308984.PDF 
 
-傲农生物:北京市中伦律师事务所关于福建傲农生物科技集团股份有限公司实际控制人及其一致行动人免于要约收购的法律意见书 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300773.PDF 
+中联重科:关于要约收购深圳市路畅科技股份有限公司23.83%股份完成过户登记的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307354.PDF 
 
-路畅科技:关于要约收购结果暨股票复牌的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299678.PDF 
+华升股份:中信证券股份有限公司关于湖南省国有资产管理集团有限公司免于发出要约收购华升股份之2022年第一季度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-05-11/1213306894.PDF 
 
-桂东电力:国海证券股份有限公司关于广西广投能源集团有限公司免于发出要约收购广西桂东电力股份有限公司之2022年第一季度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299035.PDF 
+定向增发 有1条新公告 
 
-四通股份:招商证券股份有限公司关于广东唯德实业投资有限公司要约收购广东四通集团股份有限公司之2022 年第一季度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-05-10/1213298846.PDF 
+南山控股:关于参与中国核能科技定向增发事项完成股份认购的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309872.PDF 
 
-安阳钢铁:中国国际金融股份有限公司关于河南机械装备投资集团有限责任公司豁免要约收购安阳钢铁的2022年一季度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-05-10/1213298798.PDF 
+新城控股 有1条新公告 
 
-并购重组 有1条新公告 
+新城控股:新城控股2022年4月份经营简报 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307287.PDF 
 
-电科数字:电科数字关于中国证监会上市公司并购重组审核委员会审核公司发行股份购买资产暨关联交易事项会议安排的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300726.PDF 
+德赛电池 有1条新公告 
+
+德赛电池:2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307460.PDF 
+
+伊利股份 有1条新公告 
+
+伊利股份:内蒙古伊利实业集团股份有限公司2021年年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307326.PDF 
+
+潍柴动力 有1条新公告 
+
+潍柴动力:潍柴动力股份有限公司关于收到《经营者集中反垄断审查同意撤回申报通知书》的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213310609.PDF 
 
 中国平安 有1条新公告 
 
-中国平安:中国平安H股公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213301342.PDF 
+中国平安:中国平安H股公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213308738.PDF 
 
-贵州茅台 有1条新公告 
+伟星新材 有1条新公告 
 
-贵州茅台:贵州茅台关于参加2021年度贵州辖区上市公司业绩说明会暨投资者集体接待日活动的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300846.PDF 
+伟星新材:2021年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307891.PDF 
 
-牧原股份 有1条新公告 
+恒瑞医药 有1条新公告 
 
-牧原股份:关于召开2021年度股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213301065.PDF 
+恒瑞医药:恒瑞医药关于子公司获得药品注册证书的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307496.PDF 
 
-中国中免 有1条新公告 
+万科A 有1条新公告 
 
-中国中免:中国旅游集团中免股份有限公司2021年年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-05-10/1213298557.PDF 
+万科A:关于首次回购公司A股股份的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309426.PDF 
 
-三一重工 有2条新公告 
+旗滨集团 有6条新公告 
 
-三一重工:湖南启元律师事务所关于三一重工股份有限公司实施2022年员工持股计划的法律意见书 http://static.cninfo.com.cn/finalpage/2022-05-10/1213302286.PDF 
+旗滨集团:旗滨集团第五届监事会第一次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309937.PDF 
 
-三一重工:三一重工股份有限公司2021年年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-05-10/1213302285.PDF 
+旗滨集团:旗滨集团2022第一次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309936.PDF 
 
-东方雨虹 有2条新公告 
+旗滨集团:旗滨集团2022年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309935.PDF 
 
-东方雨虹:关于2021年股票期权激励计划第一个行权期采用自主行权模式的提示性公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300134.PDF 
+旗滨集团:旗滨集团关于董事会、监事会换届完成并聘任高级管理人员及证券事务代表的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309934.PDF 
 
-东方雨虹:关于部分股票期权注销完成的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300131.PDF 
+旗滨集团:旗滨集团独立董事关于公司第五届董事会第一次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309933.PDF 
 
-通威股份 有1条新公告 
+旗滨集团:旗滨集团第五届董事会第一次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309932.PDF 
 
-通威股份:通威股份有限公司2021年年度股东大会会议材料 http://static.cninfo.com.cn/finalpage/2022-05-10/1213298552.PDF 
+立讯精密 有5条新公告 
 
-隆基股份 有1条新公告 
+立讯精密:关于公司实际控制人之一、副董事长增持股份计划的进展公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213308109.PDF 
 
-隆基股份:2021年年度股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299037.PDF 
+立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司公开发行可转换公司债券持续督导保荐总结报告书 http://static.cninfo.com.cn/finalpage/2022-05-11/1213308108.PDF 
 
-泰格医药 有4条新公告 
+立讯精密:2021年年度报告（英文版） http://static.cninfo.com.cn/finalpage/2022-05-11/1213308107.PDF 
 
-泰格医药:内部审计制度 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300279.PDF 
+立讯精密:2021年可持续发展报告（英文版） http://static.cninfo.com.cn/finalpage/2022-05-11/1213308106.PDF 
 
-泰格医药:关于举行2021年度网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300277.PDF 
+立讯精密:中信证券股份有限公司关于立讯精密工业股份有限公司2021年度保荐工作报告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213308105.PDF 
 
-泰格医药:关于取消2021年度股东大会、2022 年第一次A股类别股东会议及 2022年第一次H股类别股东会议部分议案暨股东大会补充通知的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300276.PDF 
+顺丰控股 有1条新公告 
 
-泰格医药:第四届董事会第二十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213300274.PDF 
+顺丰控股:监事会关于2022年股票期权激励计划首次授予部分激励对象名单的公示情况说明及核查意见 http://static.cninfo.com.cn/finalpage/2022-05-11/1213310020.PDF 
 
-韦尔股份 有2条新公告 
+东方雨虹 有3条新公告 
 
-韦尔股份:2022年第二次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299279.PDF 
+东方雨虹:关于在辽宁省大连市投资设立全资子公司及建设绿色建材生产基地项目的对外投资公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307464.PDF 
 
-韦尔股份:监事会关于2022年股票期权激励计划激励对象人员名单的核查意见及公示情况的说明 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299278.PDF 
+东方雨虹:北京东方雨虹防水技术股份有限公司第七届董事会第五十次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307462.PDF 
 
-闻泰科技 有2条新公告 
+东方雨虹:关于召开2021年年度股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307461.PDF 
 
-闻泰科技:华泰联合证券有限责任公司关于闻泰科技股份有限公司发行股份及支付现金购买资产并募集配套资金之2021年度持续督导的核查意见 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299610.PDF 
+隆基股份 有2条新公告 
 
-闻泰科技:关于增加募集资金专户并签订监管协议的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213298554.PDF 
+隆基股份:隆基股份关于变更公司证券简称的实施公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309356.PDF 
 
-长春高新 有3条新公告 
+隆基股份:隆基股份监事会关于公司2022年股票期权与限制性股票激励计划激励对象名单的核查意见及公示情况说明 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309355.PDF 
 
-长春高新:关于召开2021年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299570.PDF 
+三安光电 有1条新公告 
 
-长春高新:关于召开2021年度及2022年第一季度网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299569.PDF 
+三安光电:三安光电股份有限公司关于召开2021年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213306908.PDF 
 
-长春高新:第十届董事会第十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299568.PDF 
+博腾股份 有1条新公告 
 
-兆易创新 有2条新公告 
+博腾股份:关于2021年限制性股票激励计划首次授予部分第一个解锁期限制性股票解锁上市流通的提示性公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213309640.PDF 
 
-兆易创新:兆易创新关于2020年股票期权与限制性股票激励计划限制性股票第一期解除限售暨上市公告 http://static.cninfo.com.cn/finalpage/2022-05-10/1213299820.PDF 
+泰格医药 有1条新公告 
 
-兆易创新:中金公司关于北京兆易创新科技股份有限公司2021年度持续督导年度报告书 http://static.cninfo.com.cn/finalpage/2022-05-10/1213298562.PDF 
+泰格医药:关于2019年限制性股票激励计划预留部分第二个限售期解除限售股份上市流通的提示性公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213310122.PDF 
+
+生物股份 有1条新公告 
+
+生物股份:金宇生物技术股份有限公司关于召开2021年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307437.PDF 
+
+宁波银行 有1条新公告 
+
+宁波银行:宁波银行股份有限公司关于2022年第二期金融债券发行完毕的公告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213308006.PDF 
+
+闻泰科技 有1条新公告 
+
+闻泰科技:华英证券关于闻泰科技重大资产重组2021年度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2022-05-11/1213307442.PDF 
 
