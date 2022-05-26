@@ -1,98 +1,56 @@
-要约收购 有3条新公告 
+并购重组 有2条新公告 
 
-彩虹股份:北京大成（西安）律师事务所关于咸阳金融控股集团有限公司免于发出要约收购的法律意见书 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500431.PDF 
+蓝天燃气:蓝天燃气关于中国证监会上市公司并购重组审核委员会审核公司发行股份购买资产暨关联交易事项的停牌公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213515095.PDF 
 
-百大集团:百大集团股份有限公司要约收购报告书摘要 http://static.cninfo.com.cn/finalpage/2022-05-26/1213499700.PDF 
+徐工机械:关于中国证监会上市公司并购重组委员会审核公司吸收合并徐工集团工程机械有限公司暨关联交易事项的停牌公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213514629.PDF 
 
-百大集团:百大集团股份有限公司关于收到要约收购报告书摘要的提示性公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213499699.PDF 
+安琪酵母 有1条新公告 
 
-东方日升 有4条新公告 
+安琪酵母:安琪酵母股份有限公司关于控股股东增持计划实施进展的公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213515072.PDF 
 
-东方日升:宁海双盘涂300MW滩涂光伏项目可行性研究报告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498470.PDF 
+恒瑞医药 有1条新公告 
 
-东方日升:关于召开2022年第三次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498469.PDF 
+恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213514456.PDF 
 
-东方日升:关于全资子公司东方日升新能源（香港）有限公司对外投资的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498468.PDF 
+贵州茅台 有8条新公告 
 
-东方日升:第三届董事会第三十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498467.PDF 
+贵州茅台:贵州茅台章程（修订草案） http://static.cninfo.com.cn/finalpage/2022-05-27/1213517944.PDF 
 
-伊利股份 有2条新公告 
+贵州茅台:贵州茅台关于修订《公司章程》部分条款的公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213517943.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司第九期持股计划第一次持有人会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213499390.PDF 
+贵州茅台:贵州茅台独立董事候选人声明（盛雷鸣） http://static.cninfo.com.cn/finalpage/2022-05-27/1213517942.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213499389.PDF 
+贵州茅台:贵州茅台独立董事候选人声明（郭田勇） http://static.cninfo.com.cn/finalpage/2022-05-27/1213517941.PDF 
 
-潍柴动力 有1条新公告 
+贵州茅台:贵州茅台独立董事候选人声明（姜国华） http://static.cninfo.com.cn/finalpage/2022-05-27/1213517940.PDF 
 
-潍柴动力:潍柴动力股份有限公司关于召开2021年度股东周年大会的通知 http://static.cninfo.com.cn/finalpage/2022-05-26/1213501266.PDF 
+贵州茅台:贵州茅台独立董事提名人声明 http://static.cninfo.com.cn/finalpage/2022-05-27/1213517939.PDF 
 
-安琪酵母 有6条新公告 
+贵州茅台:贵州茅台第三届董事会2022年度第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213517938.PDF 
 
-安琪酵母:安琪酵母股份有限公司关于在印度设立公司的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498316.PDF 
+贵州茅台:贵州茅台关于召开2021年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-05-27/1213517937.PDF 
 
-安琪酵母:安琪酵母股份有限公司第九届监事会第二次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498315.PDF 
+旗滨集团 有1条新公告 
 
-安琪酵母:安琪酵母股份有限公司独立董事关于公司第九届董事会第二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498314.PDF 
+旗滨集团:株洲旗滨集团股份有限公司公开发行可转换公司债券受托管理事务报告（2021年度） http://static.cninfo.com.cn/finalpage/2022-05-27/1213514760.PDF 
 
-安琪酵母:安琪酵母股份有限公司第九届董事会第二次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498313.PDF 
+美的集团 有1条新公告 
 
-安琪酵母:安琪酵母股份有限公司关于赤峰公司新建成品仓库的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498312.PDF 
+美的集团:2022-038 2021年年度利润分配实施公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213516434.PDF 
 
-安琪酵母:安琪酵股份有限公司关于滨州公司扩建6000吨酵母抽提物绿色制造项目的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498311.PDF 
+东方雨虹 有1条新公告 
 
-恒瑞医药 有2条新公告 
-
-恒瑞医药:恒瑞医药关于获得美国FDA批准文号的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498547.PDF 
-
-恒瑞医药:恒瑞医药关于子公司获得药品注册证书的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498544.PDF 
-
-TCL科技 有2条新公告 
-
-TCL科技:关于2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213501191.PDF 
-
-TCL科技:关于实施2021年年度权益分派调整TCL定转2转股价格及权益分派期间暂停转股的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213501190.PDF 
-
-长江电力 有2条新公告 
-
-长江电力:北京德恒律师事务所关于中国长江电力股份有限公司2021年年度股东大会的法律意见 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500183.PDF 
-
-长江电力:长江电力2021年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500182.PDF 
-
-药明康德 有7条新公告 
-
-药明康德:关于公司2019年限制性股票与股票期权激励计划项下部分股票期权注销的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500834.PDF 
-
-药明康德:独立董事关于公司第二届董事会第二十九次会议审议的相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500833.PDF 
-
-药明康德:第二届董事会第二十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500832.PDF 
-
-药明康德:关于无锡药明康德新药开发股份有限公司2019年限制性股票与股票期权激励计划首次授予股票期权第二个行权期行权条件成就相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500831.PDF 
-
-药明康德:关于公司2019年限制性股票与股票期权激励计划首次授予股票期权第二个行权期行权条件成就的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500830.PDF 
-
-药明康德:监事会关于公司2019年限制性股票与股票期权激励计划首次授予股票期权第二个行权期的可行权激励对象名单的核查意见 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500829.PDF 
-
-药明康德:第二届监事会第二十七次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213500828.PDF 
+东方雨虹:关于为下属公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213514251.PDF 
 
 昭衍新药 有1条新公告 
 
-昭衍新药:昭衍新药关于召开2021年年度股东大会、2022年第二次A股类别股东会议及2022年第二次H股类别股东会议的通知 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498871.PDF 
+昭衍新药:昭衍新药监事集中竞价减持股份结果公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213514677.PDF 
 
-通威股份 有1条新公告 
+兆易创新 有1条新公告 
 
-通威股份:通威股份有限公司2022年第一次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-05-26/1213499172.PDF 
+兆易创新:兆易创新2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213514391.PDF 
 
-宁波银行 有2条新公告 
+永辉超市 有1条新公告 
 
-宁波银行:宁波银行股份有限公司关于变更注册资本获核准的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498738.PDF 
-
-宁波银行:宁波银行股份有限公司关于公司副董事长任职资格获核准的公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498736.PDF 
-
-汇顶科技 有1条新公告 
-
-汇顶科技:关于2022年第一期员工持股计划的进展公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213497876.PDF 
-
-恒力石化 有1条新公告 
-
-恒力石化:恒力石化2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-05-26/1213498968.PDF 
+永辉超市:永辉超市股份有限公司关于股东权益变动的提示性公告 http://static.cninfo.com.cn/finalpage/2022-05-27/1213514530.PDF 
 
