@@ -1,154 +1,106 @@
-要约收购 有3条新公告 
+要约收购 有5条新公告 
 
-茂硕电源:北京德恒律师事务所关于茂硕电源科技股份有限公司控股股东及其一致行动人认购公司非公开发行股票免于要约收购义务的法律意见 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733958.PDF 
+星徽股份:关于提请股东大会批准认购对象免于以要约收购方式增持公司股份的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213743519.PDF 
 
-*ST山航B:关于要约收购报告书摘要更新内容的说明公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732653.PDF 
+百大集团:百大集团股份有限公司独立董事关于西子国际控股有限公司要约收购公司股份的独立意见 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741192.PDF 
 
-*ST山航B:山东航空股份有限公司要约收购报告书摘要（更新稿） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732652.PDF 
+百大集团:财通证券股份有限公司关于西子国际控股有限公司要约收购百大集团股份有限公司之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741191.PDF 
 
-并购重组 有1条新公告 
+百大集团:百大集团股份有限公司董事会关于西子国际控股有限公司要约收购事宜致全体股东的报告书 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741190.PDF 
 
-亚钾国际:关于中国证监会上市公司并购重组审核委员会工作会议安排的提示性公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733484.PDF 
+天禾股份:关于免于要约收购的提示性公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740180.PDF 
 
 天味食品 有1条新公告 
 
-天味食品:关于公司使用部分闲置自有资金进行现金管理到期赎回的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213730189.PDF 
+天味食品:关于公司完成工商变更登记并换发营业执照的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213739387.PDF 
 
-新城控股 有1条新公告 
+安琪酵母 有5条新公告 
 
-新城控股:新城控股关于控股股东部分股权质押的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213731586.PDF 
+安琪酵母:华泰联合证券有限责任公司关于安琪酵母股份有限公司非公开发行A股股票发行过程和认购对象的合规性报告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213739969.PDF 
 
-德赛电池 有1条新公告 
+安琪酵母:湖北瑞通天元律师事务所关于安琪酵母股份有限公司非公开发行股票之发行过程及认购对象合规性的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-18/1213739968.PDF 
 
-德赛电池:关于部分限制性股票回购注销完成的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732046.PDF 
+安琪酵母:安琪酵母股份有限公司验资报告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213739967.PDF 
 
-伊利股份 有1条新公告 
+安琪酵母:安琪酵母股份有限公司2021年非公开发行A股股票发行情况报告书 http://static.cninfo.com.cn/finalpage/2022-06-18/1213739966.PDF 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于2022年度第十五期超短期融资券发行结果的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213730183.PDF 
-
-海螺水泥 有1条新公告 
-
-海螺水泥:关于拟注册发行中期票据的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732012.PDF 
-
-安琪酵母 有1条新公告 
-
-安琪酵母:安琪酵母股份有限公司参加2022年湖北辖区上市公司投资者集体接待日活动情况的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732442.PDF 
-
-上海机场 有1条新公告 
-
-上海机场:上海机场2022年5月运输生产情况简报 http://static.cninfo.com.cn/finalpage/2022-06-17/1213730166.PDF 
-
-中顺洁柔 有15条新公告 
-
-中顺洁柔:关于公司《2018年股票期权与限制性股票激励计划》首次授予的限制性股票第三个解锁期解锁条件成就的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733609.PDF 
-
-中顺洁柔:关于公司《2018年股票期权与限制性股票激励计划》首次授予的股票期权第三个行权期行权条件成就的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733608.PDF 
-
-中顺洁柔:关于对公司《2018年股票期权与限制性股票激励计划》首次授予的部分限制性股票回购注销的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733607.PDF 
-
-中顺洁柔:《2018年股票期权与限制性股票激励计划》首次授予第三期解锁及行权激励对象名单 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733606.PDF 
-
-中顺洁柔:广东君信律师事务所关于中顺洁柔纸业股份有限公司2018年股票期权与限制性股票激励计划调整股票期权行权价格、首次授予部分第三次行权和解锁并回购、注销部分已授予股票期权及限制性股票的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733605.PDF 
-
-中顺洁柔:关于召开2022年度第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733604.PDF 
-
-中顺洁柔:关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733603.PDF 
-
-中顺洁柔:关于减少注册资本并修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733602.PDF 
-
-中顺洁柔:关于对公司《2018年股票期权与限制性股票激励计划》首次授予的部分股票期权进行注销的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733601.PDF 
-
-中顺洁柔:关于调整《2018年股票期权与限制性股票激励计划》股票期权行权价格的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733600.PDF 
-
-中顺洁柔:公司章程（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213733599.PDF 
-
-中顺洁柔:独立董事关于续聘2022年度审计机构的事前认可意见 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733598.PDF 
-
-中顺洁柔:独立董事关于第五届董事会第十四次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733597.PDF 
-
-中顺洁柔:第五届监事会第九次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733595.PDF 
-
-中顺洁柔:第五届董事会第十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733594.PDF 
+安琪酵母:安琪酵母股份有限公司关于2021年非公开发行A股股票发行情况的提示性公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213739965.PDF 
 
 万科A 有1条新公告 
 
-万科A:关于按照《香港上市规则》公布翌日披露报表的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733420.PDF 
+万科A:关于按照《香港上市规则》公布翌日披露报表的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213743231.PDF 
 
-贵州茅台 有3条新公告 
+牧原股份 有1条新公告 
 
-贵州茅台:贵州茅台章程（2022年6月修订） http://static.cninfo.com.cn/finalpage/2022-06-17/1213734368.PDF 
+牧原股份:关于子公司注册成立的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213742363.PDF 
 
-贵州茅台:关于贵州茅台酒股份有限公司2021年年度股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-17/1213734367.PDF 
+三一重工 有1条新公告 
 
-贵州茅台:贵州茅台2021年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213734366.PDF 
+三一重工:三一重工股份有限公司关于召开2021年度暨2022年第一季度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740253.PDF 
 
-新产业 有32条新公告 
+顺丰控股 有1条新公告 
 
-新产业:2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213733671.PDF 
+顺丰控股:关于全资子公司深圳顺丰泰森控股（集团）有限公司2022年度第五期超短期融资券发行结果公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213742609.PDF 
 
-新产业:关于修订《公司章程》及公司部分治理制度的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732742.PDF 
+东方雨虹 有5条新公告 
 
-新产业:关于对外投资设立境外子公司暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732741.PDF 
+东方雨虹:北京东方雨虹防水技术股份有限公司关于延长2021年员工持股计划锁定期的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740804.PDF 
 
-新产业:关于召开2022年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732740.PDF 
+东方雨虹:北京东方雨虹防水技术股份有限公司第七届董事会第五十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740803.PDF 
 
-新产业:内幕信息知情人登记管理制度（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732739.PDF 
+东方雨虹:独立董事关于第七届董事会第五十二次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740802.PDF 
 
-新产业:信息披露暂缓与豁免管理制度（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732738.PDF 
+东方雨虹:关于公司控股股东部分股份质押及解除质押的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740801.PDF 
 
-新产业:信息披露管理制度（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732737.PDF 
+东方雨虹:北京东方雨虹防水技术股份有限公司第七届监事会第二十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740800.PDF 
 
-新产业:董事、监事及高级管理人员持股变动管理制度（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732736.PDF 
+昭衍新药 有1条新公告 
 
-新产业:总经理工作细则（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732735.PDF 
+昭衍新药:昭衍新药2021年年度股东大会、2022年第二次A股类别股东大会及2022年第二次H股类别股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740660.PDF 
 
-新产业:投资者关系管理制度（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732734.PDF 
+通威股份 有1条新公告 
 
-新产业:提供财务资助管理制度（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732733.PDF 
+通威股份:通威股份有限公司关于签订重大销售合同的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213740495.PDF 
 
-新产业:募集资金管理办法（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732732.PDF 
+韦尔股份 有2条新公告 
 
-新产业:承诺管理制度（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732731.PDF 
+韦尔股份:上海韦尔半导体股份有限公司公开发行可转换公司债券跟踪评级报告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741772.PDF 
 
-新产业:利润分配管理制度（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732730.PDF 
+韦尔股份:关于可转换公司债券跟踪评级结果的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741771.PDF 
 
-新产业:关联交易决策制度（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732729.PDF 
+中公教育 有1条新公告 
 
-新产业:对外投资管理制度（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732728.PDF 
+中公教育:关于持股5%以上股东部分股份质押担保及延期购回的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213742611.PDF 
 
-新产业:对外担保管理制度（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732727.PDF 
+闻泰科技 有6条新公告 
 
-新产业:董事会秘书工作细则（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732726.PDF 
+闻泰科技:第十一届监事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741438.PDF 
 
-新产业:董事会薪酬与考核委员会工作细则（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732725.PDF 
+闻泰科技:公开发行可转换公司债券跟踪评级报告（2022） http://static.cninfo.com.cn/finalpage/2022-06-18/1213741437.PDF 
 
-新产业:董事会战略委员会工作细则（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732724.PDF 
+闻泰科技:关于“闻泰转债”2022年跟踪评级结果的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741436.PDF 
 
-新产业:董事会提名委员会工作细则（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732723.PDF 
+闻泰科技:2021年度社会责任报告（英文版） http://static.cninfo.com.cn/finalpage/2022-06-18/1213741434.PDF 
 
-新产业:董事会审计委员会工作细则（2022年6月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732722.PDF 
+闻泰科技:2021年度社会责任报告（中文版） http://static.cninfo.com.cn/finalpage/2022-06-18/1213741433.PDF 
 
-新产业:监事会议事规则（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732720.PDF 
+闻泰科技:第十一届董事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741432.PDF 
 
-新产业:独立董事工作制度（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732719.PDF 
+公牛集团 有8条新公告 
 
-新产业:董事会议事规则（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732718.PDF 
+公牛集团:公牛集团股份有限公司第二届监事会第十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741870.PDF 
 
-新产业:股东大会议事规则（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732717.PDF 
+公牛集团:公牛集团独立董事关于第二届董事会第十三次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741869.PDF 
 
-新产业:公司章程（2022年7月） http://static.cninfo.com.cn/finalpage/2022-06-17/1213732716.PDF 
+公牛集团:公牛集团股份有限公司第二届董事会第十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741868.PDF 
 
-新产业:华泰联合证券有限责任公司关于公司对外投资设立境外子公司暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732715.PDF 
+公牛集团:公牛集团股份有限公司关于股份性质变更暨2022年限制性股票激励计划权益授予的进展公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741867.PDF 
 
-新产业:第四届监事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732714.PDF 
+公牛集团:上海仁盈律师事务所关于公牛集团2021年限制性股票激励计划第一个解除限售期解除限售条件成就的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741866.PDF 
 
-新产业:独立董事关于第四届董事会第四次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732713.PDF 
+公牛集团:公牛集团股份有限公司2021年限制性股票激励计划第一个解除限售期解除限售条件成就的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741865.PDF 
 
-新产业:独立董事关于第四届董事会第四次会议相关事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732712.PDF 
+公牛集团:上海仁盈律师事务所关于公牛集团2020年限制性股票激励计划第二个解除限售期解除限售条件成就的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741864.PDF 
 
-新产业:第四届董事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213732711.PDF 
-
-公牛集团 有1条新公告 
-
-公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理到期收回并继续进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2022-06-17/1213730605.PDF 
+公牛集团:公牛集团股份有限公司2020年限制性股票激励计划第二个解除限售期解除限售条件成就的公告 http://static.cninfo.com.cn/finalpage/2022-06-18/1213741863.PDF 
 
