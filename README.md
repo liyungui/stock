@@ -1,106 +1,66 @@
 要约收购 有2条新公告 
 
-美丽生态:福建知茂律师事务所关于深圳美丽生态股份有限公司收购报告书暨免于发出要约收购申请之法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855897.PDF 
+大连重工:辽宁恒信律师事务所关于大连市国有资本管理运营有限公司免于发出要约收购之法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-30/1213878921.PDF 
 
-美丽生态:江海证券有限公司关于深圳美丽生态股份有限公司收购报告书暨免于发出要约收购申请之财务顾问报告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855896.PDF 
+瓦轴B:辽宁恒信律师事务所关于大连市国有资本管理运营有限公司免于发出要约收购之法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-30/1213877864.PDF 
 
-并购重组 有2条新公告 
+并购重组 有3条新公告 
 
-西部黄金:西部黄金股份有限公司关于中国证监会上市公司并购重组审核委员会审核公司发行股份购买资产并募集配套资金暨关联交易事项的停牌公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855077.PDF 
+华软科技:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2022-06-30/1213879557.PDF 
 
-皖维高新:皖维高新关于中国证监会上市公司并购重组委员会审核公司发行股份购买资产并募集配套资金暨关联交易事项的停牌公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213852062.PDF 
+西部黄金:西部黄金股份有限公司关于发行股份购买资产并募集配套资金暨关联交易事项获中国证监会上市公司并购重组审核委员会审核无条件通过暨公司股票复牌的公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213875379.PDF 
 
-科顺股份 有6条新公告 
+皖维高新:皖维高新关于发行股份购买资产并募集配套资金事项获得中国证监会上市公司并购重组委员会有条件审核通过暨股票复牌的公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213873411.PDF 
 
-科顺股份:关于2020年限制性股票激励计划预留授予第一期和首次授予第二期解除限售条件成就的公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853878.PDF 
+金域医学 有2条新公告 
 
-科顺股份:第三届监事会第十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853876.PDF 
+金域医学:广州金域医学检验集团股份有限公司2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213876394.PDF 
 
-科顺股份:第三届董事会第十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853875.PDF 
+金域医学:广州金域医学检验集团股份有限公司关于调整2021年度利润分配现金分红总额的公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213876393.PDF 
 
-科顺股份:关于拟向银行申请综合授信额度的公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853874.PDF 
+伊利股份 有1条新公告 
 
-科顺股份:北京市中伦（深圳）律师事务所关于科顺股份2020年限制性股票激励计划首次授予部分第二个解除限售期解除限售条件成就及预留授予部分第一个解除限售期解除限售条件成就相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853873.PDF 
+伊利股份:内蒙古伊利实业集团股份有限公司关于2022年度第八期超短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213873839.PDF 
 
-科顺股份:独立董事关于公司第三届董事会第十四次相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853872.PDF 
+招商银行 有4条新公告 
 
-邮储银行 有2条新公告 
+招商银行:招商银行股份有限公司第十二届监事会第一次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213879214.PDF 
 
-邮储银行:北京市金杜律师事务所关于邮储银行2021年年度股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855280.PDF 
+招商银行:招商银行股份有限公司第十二届董事会第一次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213879213.PDF 
 
-邮储银行:中国邮政储蓄银行股份有限公司2021年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855279.PDF 
+招商银行:北京市君合（深圳）律师事务所关于招商银行股份有限公司2021年度股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-30/1213879212.PDF 
 
-潍柴动力 有3条新公告 
+招商银行:招商银行股份有限公司2021年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213879211.PDF 
 
-潍柴动力:北京市通商律师事务所关于潍柴动力股份有限公司2021年度股东周年大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855682.PDF 
+恒瑞医药 有1条新公告 
 
-潍柴动力:潍柴动力股份有限公司董事会议事规则 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855681.PDF 
-
-潍柴动力:潍柴动力股份有限公司2021年度股东周年大会会议决议公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855680.PDF 
-
-招商银行 有1条新公告 
-
-招商银行:招商银行股份有限公司关于选举产生第十二届监事会职工监事的公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213852060.PDF 
-
-海康威视 有1条新公告 
-
-海康威视:关于公司及子公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213852518.PDF 
-
-恒瑞医药 有2条新公告 
-
-恒瑞医药:恒瑞医药差异化分红事项法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853523.PDF 
-
-恒瑞医药:恒瑞医药2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853521.PDF 
-
-平安银行 有2条新公告 
-
-平安银行:关于平安银行股份有限公司2021年年度股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853474.PDF 
-
-平安银行:平安银行股份有限公司2021年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853473.PDF 
-
-万科A 有2条新公告 
-
-万科A:关于公司2021年度股东大会、2022年第一次A股类别股东大会及2022年第一次H股类别股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855920.PDF 
-
-万科A:2021年度股东大会、2022年第一次A股类别股东大会及2022年第一次H股类别股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855919.PDF 
-
-东方财富 有1条新公告 
-
-东方财富:东方财富信息股份有限公司关于子公司东方财富证券股份有限公司2021年度第十期短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213854737.PDF 
-
-牧原股份 有2条新公告 
-
-牧原股份:牧原食品股份有限公司公开发行可转换公司债券2022年度跟踪评级报告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855298.PDF 
-
-牧原股份:关于股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855295.PDF 
+恒瑞医药:恒瑞医药关于获得药品注册证书的公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213874442.PDF 
 
 万华化学 有2条新公告 
 
-万华化学:万华化学2022年7月份中国地区MDI价格公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213854561.PDF 
+万华化学:万华化学关于持股5%以上股东权益变动的提示性公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213875690.PDF 
 
-万华化学:万华化学关于持股5%以上股东集中竞价减持股份计划公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213854560.PDF 
+万华化学:万华化学关于持股5%以上股东部分股份解除质押公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213875689.PDF 
 
-歌尔股份 有1条新公告 
+东方雨虹 有1条新公告 
 
-歌尔股份:关于“家园4号”员工持股计划第二个锁定期届满的提示性公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213853358.PDF 
+东方雨虹:关于签订项目投资协议书的公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213873558.PDF 
 
-三安光电 有1条新公告 
+中信建投 有2条新公告 
 
-三安光电:三安光电股份有限公司关于控股股东部分股份解除质押的公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213851997.PDF 
+中信建投:关于中信建投资本管理有限公司变更注册资本的公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213876274.PDF 
 
-中信建投 有3条新公告 
+中信建投:股票發行人現金股息公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213872469.PDF 
 
-中信建投:关于监事任职的公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213856972.PDF 
+韦尔股份 有1条新公告 
 
-中信建投:北京市天元律师事务所关于中信建投证券股份有限公司2021年度股东大会的法律意见 http://static.cninfo.com.cn/finalpage/2022-06-29/1213856971.PDF 
+韦尔股份:关于筹划境外发行全球存托凭证并在瑞士证券交易所上市的提示性公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213873530.PDF 
 
-中信建投:2021年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213856970.PDF 
+闻泰科技 有1条新公告 
 
-闻泰科技 有3条新公告 
+闻泰科技:华泰联合证券有限责任公司关于闻泰科技股份有限公司公开发行可转换公司债券受托管理事务报告（2021年度） http://static.cninfo.com.cn/finalpage/2022-06-30/1213872463.PDF 
 
-闻泰科技:控股股东关于闻泰科技股票交易异常波动问询函的回复 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855076.PDF 
+永辉超市 有1条新公告 
 
-闻泰科技:实际控制人关于闻泰科技股票交易异常波动问询函的回复 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855075.PDF 
-
-闻泰科技:股票交易异常波动公告 http://static.cninfo.com.cn/finalpage/2022-06-29/1213855074.PDF 
+永辉超市:永辉超市股份有限公司关于股东部分股份质押暨解质公告 http://static.cninfo.com.cn/finalpage/2022-06-30/1213874067.PDF 
 
