@@ -1,62 +1,64 @@
-要约收购 有2条新公告 
+新城控股 有1条新公告 
 
-大胜达:浙江大胜达包装股份有限公司关于杭州新胜达投资有限公司认购公司非公开发行股票免于要约收购义务之法律意见 http://static.cninfo.com.cn/finalpage/2022-07-21/1214096917.PDF 
+新城控股:新城控股关于公开发行公司债券获得中国证监会批复的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110651.PDF 
 
-大胜达:浙江大胜达包装股份有限公司关于公司控股股东免于发出收购要约的公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214096916.PDF 
+万科A 有1条新公告 
 
-安琪酵母 有2条新公告 
+万科A:2022年度第一期绿色中期票据发行结果公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110562.PDF 
 
-安琪酵母:湖北瑞通天元律师事务所关于安琪酵母股份有限公司2022年第三次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-07-21/1214096879.PDF 
+TCL科技 有3条新公告 
 
-安琪酵母:安琪酵母股份有限公司2022年第三次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214096878.PDF 
+TCL科技:关于TCL科技集团股份有限公司非公开发行A股股票发审委会议准备工作告知函的回复 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110517.PDF 
 
-TCL科技 有2条新公告 
+TCL科技:关于非公开发行A股股票发审委会议准备工作告知函回复的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110516.PDF 
 
-TCL科技:关于“19TCL02”回售申报结果的公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095175.PDF 
+TCL科技:关于19TCL02债券转售的提示性公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109835.PDF 
 
-TCL科技:“19TCL02”2022年付息公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095174.PDF 
+贵州茅台 有1条新公告 
 
-旗滨集团 有1条新公告 
+贵州茅台:贵州茅台2022年上半年主要经营数据公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110972.PDF 
 
-旗滨集团:旗滨集团关于可转债转股价格调整的公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214096205.PDF 
+东方财富 有2条新公告 
 
-长江电力 有4条新公告 
+东方财富:东方财富信息股份有限公司关于子公司东方财富证券股份有限公司2022年度第六期短期融资券发行情况的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110364.PDF 
 
-长江电力:长江电力关于重大资产重组事项获得国务院国资委批复的公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095569.PDF 
+东方财富:东方财富信息股份有限公司关于子公司东方财富证券股份有限公司2021年度第十一期短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110363.PDF 
 
-长江电力:北京德恒律师事务所关于中国长江电力股份有限公司2022年第二次临时股东大会的法律意见 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095568.PDF 
+牧原股份 有1条新公告 
 
-长江电力:长江电力2022年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095567.PDF 
+牧原股份:关于收到《中国证监会行政许可项目审查二次反馈意见通知书》的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110897.PDF 
 
-长江电力:长江电力关于重大资产重组相关财务数据延期的公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095566.PDF 
+长江电力 有1条新公告 
+
+长江电力:长江电力关于公司控股股东发行可交换公司债券对持有的部分本公司A股股票办理补充担保及信托登记的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109203.PDF 
 
 立讯精密 有1条新公告 
 
-立讯精密:关于2019年股票期权激励计划首次授予第三个行权期采用自主行权模式的提示性公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214096807.PDF 
+立讯精密:关于完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109659.PDF 
 
-美的集团 有1条新公告 
+药明康德 有1条新公告 
 
-美的集团:关于第八期全球合伙人持股计划非交易过户完成的公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095923.PDF 
+药明康德:2022年度全年业绩目标更新公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214111830.PDF 
 
 东方雨虹 有1条新公告 
 
-东方雨虹:关于与北京京东世纪贸易有限公司签订战略合作框架协议的公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095307.PDF 
+东方雨虹:关于为下属公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109866.PDF 
 
-昭衍新药 有2条新公告 
+韦尔股份 有2条新公告 
 
-昭衍新药:北京市康达律师事务所关于北京昭衍新药研究中心股份有限公司回购注销2018年、2019年股票期权与限制性股票激励计划部分限制性股票的法律意见书 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095236.PDF 
+韦尔股份:2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110196.PDF 
 
-昭衍新药:北京昭衍新药研究中心股份有限公司关于2018年、2019年股票期权与限制性股票激励计划限制性股票回购注销实施公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214095235.PDF 
+韦尔股份:关于可转换公司债券转股价格调整的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110195.PDF 
 
-歌尔股份 有3条新公告 
+闻泰科技 有1条新公告 
 
-歌尔股份:关于“家园5号”员工持股计划第一个锁定期届满的提示性公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214094969.PDF 
+闻泰科技:关于“闻泰转债”2022年付息公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110162.PDF 
 
-歌尔股份:北京市天元律师事务所关于歌尔股份有限公司实施“家园6号”员工持股计划的法律意见 http://static.cninfo.com.cn/finalpage/2022-07-21/1214094968.PDF 
+用友网络 有3条新公告 
 
-歌尔股份:监事会关于公司2022年股票期权激励计划首次授予部分激励对象名单的审核意见及公示情况说明 http://static.cninfo.com.cn/finalpage/2022-07-21/1214094967.PDF 
+用友网络:用友网络关于控股股东一致行动人部分股份质押的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109682.PDF 
 
-用友网络 有1条新公告 
+用友网络:中信证券股份有限公司关于用友网络科技股份有限公司非公开发行股票限售股解禁上市流通的核查意见 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109681.PDF 
 
-用友网络:用友网络关于2022年限制性股票激励计划授予结果公告 http://static.cninfo.com.cn/finalpage/2022-07-21/1214096200.PDF 
+用友网络:用友网络关于非公开发行限售股上市流通公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109680.PDF 
 
