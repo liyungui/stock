@@ -1,64 +1,80 @@
-新城控股 有1条新公告 
+要约收购 有2条新公告 
 
-新城控股:新城控股关于公开发行公司债券获得中国证监会批复的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110651.PDF 
+德邦股份:德邦物流股份有限公司关于要约收购事项的进展公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214122647.PDF 
 
-万科A 有1条新公告 
+钱江水利:钱江水利开发股份有限公司关于要约收购事项的进展公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121097.PDF 
 
-万科A:2022年度第一期绿色中期票据发行结果公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110562.PDF 
+天味食品 有1条新公告 
+
+天味食品:关于使用部分闲置自有资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119586.PDF 
+
+上海机场 有11条新公告 
+
+上海机场:上海机场关于发行股份购买资产并募集配套资金暨关联交易事项之资产交割完成情况的公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119504.PDF 
+
+上海机场:上海机场关于召开2022年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119503.PDF 
+
+上海机场:上海机场独立董事候选人声明 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119502.PDF 
+
+上海机场:上海机场独立董事候选人声明 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119501.PDF 
+
+上海机场:上海机场独立董事候选人声明 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119500.PDF 
+
+上海机场:上海机场独立董事提名人声明 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119499.PDF 
+
+上海机场:上海机场关于第八届董事会第二十八次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119498.PDF 
+
+上海机场:上海机场第八届董事会第二十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119497.PDF 
+
+上海机场:上海机场第八届监事会第十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119496.PDF 
+
+上海机场:关于上海机场发行股份购买资产并募集配套资金暨关联交易资产交割完成情况之法律意见书 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119495.PDF 
+
+上海机场:国泰君安证券股份有限公司关于上海机场发行股份购买资产并募集配套资金暨关联交易资产交割完成情况之独立财务顾问核查意见 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119494.PDF 
+
+招商银行 有1条新公告 
+
+招商银行:招商银行股份有限公司第十二届董事会第三次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121091.PDF 
 
 TCL科技 有3条新公告 
 
-TCL科技:关于TCL科技集团股份有限公司非公开发行A股股票发审委会议准备工作告知函的回复 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110517.PDF 
+TCL科技:2022年第二次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121642.PDF 
 
-TCL科技:关于非公开发行A股股票发审委会议准备工作告知函回复的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110516.PDF 
+TCL科技:2022年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121641.PDF 
 
-TCL科技:关于19TCL02债券转售的提示性公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109835.PDF 
+TCL科技:关于向下修正TCL定转2转股价格的公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121640.PDF 
 
-贵州茅台 有1条新公告 
+旗滨集团 有1条新公告 
 
-贵州茅台:贵州茅台2022年上半年主要经营数据公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110972.PDF 
+旗滨集团:旗滨集团关于召开2022年第三次临时股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121163.PDF 
 
-东方财富 有2条新公告 
+美的集团 有3条新公告 
 
-东方财富:东方财富信息股份有限公司关于子公司东方财富证券股份有限公司2022年度第六期短期融资券发行情况的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110364.PDF 
+美的集团:关于2022年第四次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-07-23/1214122272.PDF 
 
-东方财富:东方财富信息股份有限公司关于子公司东方财富证券股份有限公司2021年度第十一期短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110363.PDF 
+美的集团:第四届董事会第十次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214122271.PDF 
 
-牧原股份 有1条新公告 
+美的集团:关于申请统一注册多品种债务融资工具的公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214122269.PDF 
 
-牧原股份:关于收到《中国证监会行政许可项目审查二次反馈意见通知书》的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110897.PDF 
+三安光电 有1条新公告 
 
-长江电力 有1条新公告 
+三安光电:三安光电股份有限公司为全资子公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214120206.PDF 
 
-长江电力:长江电力关于公司控股股东发行可交换公司债券对持有的部分本公司A股股票办理补充担保及信托登记的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109203.PDF 
+用友网络 有1条新公告 
 
-立讯精密 有1条新公告 
+用友网络:用友网络关于参与认购的投资基金完成私募投资基金备案的进展公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121112.PDF 
 
-立讯精密:关于完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109659.PDF 
+兆易创新 有2条新公告 
 
-药明康德 有1条新公告 
+兆易创新:北京市中伦律师事务所关于北京兆易创新科技股份有限公司2022年第一次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121202.PDF 
 
-药明康德:2022年度全年业绩目标更新公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214111830.PDF 
+兆易创新:兆易创新2022年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214121201.PDF 
 
-东方雨虹 有1条新公告 
+公牛集团 有1条新公告 
 
-东方雨虹:关于为下属公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109866.PDF 
+公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理到期收回的进展公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214119581.PDF 
 
-韦尔股份 有2条新公告 
+深南电路 有1条新公告 
 
-韦尔股份:2021年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110196.PDF 
-
-韦尔股份:关于可转换公司债券转股价格调整的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110195.PDF 
-
-闻泰科技 有1条新公告 
-
-闻泰科技:关于“闻泰转债”2022年付息公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214110162.PDF 
-
-用友网络 有3条新公告 
-
-用友网络:用友网络关于控股股东一致行动人部分股份质押的公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109682.PDF 
-
-用友网络:中信证券股份有限公司关于用友网络科技股份有限公司非公开发行股票限售股解禁上市流通的核查意见 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109681.PDF 
-
-用友网络:用友网络关于非公开发行限售股上市流通公告 http://static.cninfo.com.cn/finalpage/2022-07-22/1214109680.PDF 
+深南电路:关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2022-07-23/1214123159.PDF 
 
