@@ -1,82 +1,52 @@
-混合所有制改革 有1条新公告 
+要约收购 有1条新公告 
 
-中文传媒:中文传媒关于控股子公司开展混合所有制改革暨引入合格投资者并实施员工持股相关事项进展情况的公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201094.PDF 
+新五丰:湖南启元律师事务所关于湖南农业发展投资集团有限责任公司收购湖南新五丰股份有限公司免于发出要约事项的法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-04/1214213867.PDF 
 
-并购重组 有1条新公告 
+德赛电池 有1条新公告 
 
-泰嘉股份:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2022-08-03/1214204125.PDF 
+德赛电池:关于持股5%以上股东继续放弃表决权暨与控股股东签署协议的提示性公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214211450.PDF 
 
-潍柴动力 有1条新公告 
+兴业银行 有1条新公告 
 
-潍柴动力:潍柴动力股份有限公司关于回购部分A股社会公众股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202935.PDF 
+兴业银行:兴业银行关于2022年第三期金融债券发行情况的公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214213162.PDF 
 
-福耀玻璃 有1条新公告 
+安琪酵母 有1条新公告 
 
-福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201283.PDF 
+安琪酵母:安琪酵母股份有限公司关于召开2022年半年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214213583.PDF 
 
-瀚蓝环境 有2条新公告 
+万科A 有2条新公告 
 
-瀚蓝环境:关于启动基础设施公募REITs发行工作的公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214203207.PDF 
+万科A:2022年7月销售及近期新增项目情况简报 http://static.cninfo.com.cn/finalpage/2022-08-04/1214214111.PDF 
 
-瀚蓝环境:第十届董事会第二十九次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201472.PDF 
-
-恒瑞医药 有2条新公告 
-
-恒瑞医药:恒瑞医药关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201281.PDF 
-
-恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201280.PDF 
-
-平安银行 有1条新公告 
-
-平安银行:平安银行股份有限公司关于独立董事辞任的公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202776.PDF 
-
-贵州茅台 有3条新公告 
-
-贵州茅台:贵州茅台关于贵州茅台集团财务有限公司的风险持续评估报告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214203818.PDF 
-
-贵州茅台:贵州茅台2022年半年度报告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214203817.PDF 
-
-贵州茅台:贵州茅台2022年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2022-08-03/1214203816.PDF 
-
-旗滨集团 有2条新公告 
-
-旗滨集团:旗滨集团关于以集中竞价交易方式回购股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202412.PDF 
-
-旗滨集团:旗滨集团关于全资子公司完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202411.PDF 
+万科A:关于按照《香港上市规则》公布2022年7月证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214214110.PDF 
 
 药明康德 有1条新公告 
 
-药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202097.PDF 
+药明康德:关于召开2022年半年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214211855.PDF 
 
-中国重汽 有1条新公告 
+中国中免 有1条新公告 
 
-中国重汽:关于回购部分A股股份进展情况的公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201119.PDF 
-
-东方雨虹 有1条新公告 
-
-东方雨虹:关于为下属公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202957.PDF 
+中国中免:中国旅游集团中免股份有限公司2022年第二次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-08-04/1214211467.PDF 
 
 昭衍新药 有1条新公告 
 
-昭衍新药:昭衍新药关于股份回购进展情况的公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201106.PDF 
+昭衍新药:昭衍新药高级管理人员及其一致行动人集中竞价减持股份进展及致歉公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214212355.PDF 
+
+通威股份 有1条新公告 
+
+通威股份:通威股份有限公司关于对外提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214213313.PDF 
 
 三安光电 有1条新公告 
 
-三安光电:三安光电股份有限公司二○二二年第二次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201010.PDF 
+三安光电:三安光电股份有限公司关于控股股东部分股份解除质押的公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214212018.PDF 
 
-生物股份 有1条新公告 
+中信建投 有1条新公告 
 
-生物股份:金宇生物技术股份有限公司关于以集中竞价交易方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201093.PDF 
+中信建投:截至2022年7月31日止月份之股份發行人的證券變動月報表 http://static.cninfo.com.cn/finalpage/2022-08-04/1214212490.PDF 
 
-韦尔股份 有3条新公告 
+闻泰科技 有2条新公告 
 
-韦尔股份:关于调整公司发行GDR代表的基础证券A股股票数量上限的公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202416.PDF 
+闻泰科技:关于不向下修正“闻泰转债”转股价格的公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214212994.PDF 
 
-韦尔股份:2022年第四次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202415.PDF 
-
-韦尔股份:2022年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214202414.PDF 
-
-用友网络 有1条新公告 
-
-用友网络:用友网络关于以集中竞价方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-08-03/1214201686.PDF 
+闻泰科技:第十一届董事会第七次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-04/1214212993.PDF 
 
