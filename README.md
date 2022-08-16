@@ -1,132 +1,132 @@
-要约收购 有2条新公告 
+混合所有制改革 有1条新公告 
 
-德邦股份:宿迁京东卓风企业管理有限公司要约收购公司股份的第二次提示性公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214297520.PDF 
+ST时万:辽宁时代万恒股份有限公司关于控股股东混合所有制改革进展的公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307870.PDF 
 
-润都股份:广东广信君达律师事务所关于珠海润都制药股份有限公司共同实际控制人申请豁免要约收购之专项法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-16/1214295979.PDF 
+天味食品 有1条新公告 
 
-天味食品 有2条新公告 
+天味食品:关于召开2022年半年报网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307882.PDF 
 
-天味食品:关于使用部分闲置募集资金进行现金管理到期赎回的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296839.PDF 
+格力电器 有2条新公告 
 
-天味食品:关于使用部分闲置自有资金进行现金管理到期赎回的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296838.PDF 
+格力电器:2022-051 2022年第二次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310000.PDF 
 
-邮储银行 有1条新公告 
+格力电器:2022年第二次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-17/1214309999.PDF 
 
-邮储银行:中国邮政储蓄银行股份有限公司关于赎回境外优先股的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214294695.PDF 
+分众传媒 有9条新公告 
 
-中国平安 有1条新公告 
+分众传媒:2022年半年度财务报告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307155.PDF 
 
-中国平安:中国平安关于召开2022年中期业绩发布会的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214297515.PDF 
+分众传媒:2022年半年度报告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307154.PDF 
 
-安琪酵母 有3条新公告 
+分众传媒:公司关于延长第一期员工持股计划存续期的公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307153.PDF 
 
-安琪酵母:安琪酵母股份有限公司关于回购注销部分限制性股票减少注册资本暨通知债权人的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214297480.PDF 
+分众传媒:公司关于第一期员工持股计划锁定期届满的提示性公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307152.PDF 
 
-安琪酵母:湖北瑞通天元律师事务所关于安琪酵母股份有限公司2022年第四次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-16/1214297479.PDF 
+分众传媒:半年度非经营性资金占用及其他关联资金往来情况汇总表 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307151.PDF 
 
-安琪酵母:安琪酵母股份有限公司2022年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214297478.PDF 
+分众传媒:独立董事关于控股股东及其他关联方占用公司资金、公司对外担保情况的专项说明和独立意见 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307150.PDF 
 
-恒瑞医药 有1条新公告 
+分众传媒:半年报监事会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307149.PDF 
 
-恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214295445.PDF 
+分众传媒:半年报董事会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307148.PDF 
 
-平安银行 有1条新公告 
+分众传媒:2022年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307147.PDF 
 
-平安银行:平安银行股份有限公司关于征集2022年半年度业绩发布会问题的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298268.PDF 
+上海机场 有1条新公告 
 
-万科A 有1条新公告 
+上海机场:上海机场2022年7月运输生产情况简报 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307524.PDF 
 
-万科A:关于董事会会议召开日期的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298892.PDF 
+伟星新材 有10条新公告 
 
-药明康德 有8条新公告 
+伟星新材:2022年半年度报告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310578.PDF 
 
-药明康德:无锡药明康德新药开发股份有限公司章程（2022年第二次修订） http://static.cninfo.com.cn/finalpage/2022-08-16/1214298733.PDF 
+伟星新材:半年报董事会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310577.PDF 
 
-药明康德:关于变更公司注册资本并修改公司章程的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298732.PDF 
+伟星新材:《公司董事、监事和高级管理人员所持公司股份及其变动管理制度》 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310576.PDF 
 
-药明康德:华泰联合证券有限责任公司关于无锡药明康德新药开发股份有限公司部分A股非公开发行募投项目结项并将节余募集资金用于其他募投项目以及部分A股非公开发行募投项目延期的核查意见 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298731.PDF 
+伟星新材:《公司内幕信息知情人管理制度》 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310575.PDF 
 
-药明康德:关于部分A股非公开发行募投项目结项并将节余募集资金用于其他募投项目以及部分A股非公开发行募投项目延期的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298730.PDF 
+伟星新材:《公司投资者关系管理制度》 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310574.PDF 
 
-药明康德:无锡药明康德新药开发股份有限公司2022年H股奖励信托计划（草案） http://static.cninfo.com.cn/finalpage/2022-08-16/1214298729.PDF 
+伟星新材:2022年半年度财务报告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310573.PDF 
 
-药明康德:独立董事关于公司第二届董事会第三十二次会议审议的相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298727.PDF 
+伟星新材:独立董事关于控股股东及其他关联方占用公司资金、公司对外担保情况的专项说明和独立意见 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310572.PDF 
 
-药明康德:第二届董事会第三十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298726.PDF 
+伟星新材:《公司信息披露管理制度》 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310571.PDF 
 
-药明康德:第二届监事会第三十次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298725.PDF 
+伟星新材:半年度非经营性资金占用及其他关联资金往来情况汇总表 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310570.PDF 
 
-万华化学 有2条新公告 
+伟星新材:2022年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310569.PDF 
 
-万华化学:万华化学2022年第一次临时股东大会法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296774.PDF 
+中兴通讯 有1条新公告 
 
-万华化学:万华化学2022年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296773.PDF 
+中兴通讯:关于按照《香港上市规则》公布董事会会议通告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214310195.PDF 
 
-东方雨虹 有5条新公告 
+长江电力 有1条新公告 
 
-东方雨虹:关于北京东方雨虹防水技术股份有限公司第二期限制性股票激励计划预留部分第四个解锁期解锁条件成就相关事项之法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296734.PDF 
+长江电力:长江电力关于收到《中国证监会行政许可项目审查一次反馈意见通知书》的公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308272.PDF 
 
-东方雨虹:2022-093 关于第二期限制性股票激励计划预留部分第四个解锁期解锁条件成就的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296733.PDF 
+三安光电 有1条新公告 
 
-东方雨虹:独立董事关于第七届董事会第五十三次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296732.PDF 
+三安光电:三安光电股份有限公司为全资子公司提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214309413.PDF 
 
-东方雨虹:北京东方雨虹防水技术股份有限公司第七届监事会第三十次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296731.PDF 
+中信建投 有1条新公告 
 
-东方雨虹:北京东方雨虹防水技术股份有限公司第七届董事会第五十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296730.PDF 
+中信建投:董事会会议通告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307546.PDF 
 
-昭衍新药 有17条新公告 
+双汇发展 有17条新公告 
 
-昭衍新药:2022年第六次工会委员会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298166.PDF 
+双汇发展:2022年半年度财务报告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308579.PDF 
 
-昭衍新药:2022年A股限制性股票激励计划激励对象名单 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298165.PDF 
+双汇发展:2022年半年度报告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308578.PDF 
 
-昭衍新药:2022年A股限制性股票激励计划（草案） http://static.cninfo.com.cn/finalpage/2022-08-16/1214298164.PDF 
+双汇发展:半年度非经营性资金占用及其他关联资金往来情况汇总表 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308577.PDF 
 
-昭衍新药:2022年A股限制性股票激励计划实施考核管理办法 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298163.PDF 
+双汇发展:2022年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308576.PDF 
 
-昭衍新药:北京昭衍新药研究中心股份有限公司监事会关于公司2022年A股限制性股票激励计划相关事项的审核意见 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298162.PDF 
+双汇发展:2022年半年度募集资金存放与实际使用情况专项报告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308574.PDF 
 
-昭衍新药:上海荣正投资咨询股份有限公司关于北京昭衍新药研究中心股份有限公司2022年A股限制性股票激励计划（草案）之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298161.PDF 
+双汇发展:半年报监事会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308573.PDF 
 
-昭衍新药:北京市天元律师事务所关于北京昭衍新药研究中心股份有限公司2022年A股限制性股票激励计划的法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298160.PDF 
+双汇发展:信息披露管理制度（2022年8月） http://static.cninfo.com.cn/finalpage/2022-08-17/1214308572.PDF 
 
-昭衍新药:北京昭衍新药研究中心股份有限公司独立董事关于公司第三届董事会第三十四次会议审议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298159.PDF 
+双汇发展:投资者关系管理制度（2022年8月） http://static.cninfo.com.cn/finalpage/2022-08-17/1214308571.PDF 
 
-昭衍新药:北京昭衍新药研究中心股份有限公司2022年A股限制性股票激励计划（草案）摘要公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298158.PDF 
+双汇发展:内幕信息知情人登记管理制度（2022年8月） http://static.cninfo.com.cn/finalpage/2022-08-17/1214308570.PDF 
 
-昭衍新药:北京昭衍新药研究中心股份有限公司第三届监事会第二十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298157.PDF 
+双汇发展:关联交易管理制度（2022年8月） http://static.cninfo.com.cn/finalpage/2022-08-17/1214308569.PDF 
 
-昭衍新药:北京昭衍新药研究中心股份有限公司第三届董事会第三十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298156.PDF 
+双汇发展:独立董事制度（2022年8月） http://static.cninfo.com.cn/finalpage/2022-08-17/1214308568.PDF 
 
-昭衍新药:昭衍新药关于2021年年度A股权益分派实施后调整回购股份价格上限的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298155.PDF 
+双汇发展:董事、监事和高级管理人员所持本公司股份及其变动管理制度（2022年8月） http://static.cninfo.com.cn/finalpage/2022-08-17/1214308567.PDF 
 
-昭衍新药:上海荣正投资咨询股份有限公司关于北京昭衍新药研究中心股份有限公司2022年A股员工持股计划（草案）之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298154.PDF 
+双汇发展:关于召开2022年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308566.PDF 
 
-昭衍新药:北京昭衍新药研究中心股份有限公司监事会关于公司2022年A股员工持股计划相关事项的审核意见 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298153.PDF 
+双汇发展:关于河南双汇集团财务有限公司2022年半年度风险持续评估报告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308565.PDF 
 
-昭衍新药:2022年A股员工持股计划管理办法 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298152.PDF 
+双汇发展:关于2022年半年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308564.PDF 
 
-昭衍新药:2022年A股员工持股计划（草案） http://static.cninfo.com.cn/finalpage/2022-08-16/1214298151.PDF 
+双汇发展:独立董事关于控股股东及其他关联方占用公司资金、公司对外担保情况的专项说明和独立意见 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308563.PDF 
 
-昭衍新药:2022年A股员工持股计划（草案）摘要 http://static.cninfo.com.cn/finalpage/2022-08-16/1214298150.PDF 
+双汇发展:半年报董事会决议公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214308562.PDF 
 
-中信建投 有2条新公告 
+汇顶科技 有6条新公告 
 
-中信建投:中信建投证券股份有限公司2022年第一次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296106.PDF 
+汇顶科技:国浩律师（深圳）事务所关于深圳市汇顶科技股份有限公司注销部分股票期权之法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307578.PDF 
 
-中信建投:关于召开2022年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-08-16/1214296105.PDF 
+汇顶科技:广东信达律师事务所关于深圳市汇顶科技股份有限公司注销2018年股票期权激励计划部分股票期权及注销2019年股票期权与限制性股票激励计划部分股票期权相关事项的法律意见书 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307575.PDF 
 
-恒力石化 有6条新公告 
+汇顶科技:独立董事关于第四届董事会第十三次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307573.PDF 
 
-恒力石化:恒力石化关于召开2022年半年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214295320.PDF 
+汇顶科技:关于注销部分股票期权的公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307571.PDF 
 
-恒力石化:恒力石化2022年半年度主要经营数据公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214295319.PDF 
+汇顶科技:第四届监事会第十二次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307570.PDF 
 
-恒力石化:恒力石化第九届监事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214295318.PDF 
+汇顶科技:第四届董事会第十三次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307569.PDF 
 
-恒力石化:恒力石化第九届董事会第四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214295317.PDF 
+永辉超市 有2条新公告 
 
-恒力石化:恒力石化2022年半年度报告 http://static.cninfo.com.cn/finalpage/2022-08-16/1214295316.PDF 
+永辉超市:永辉超市股份有限公司关于回购股份事项前十大股东和前十大无限售条件股东持股情况的公告 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307557.PDF 
 
-恒力石化:恒力石化2022年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2022-08-16/1214295315.PDF 
+永辉超市:永辉超市股份有限公司关于以集中竞价交易方式回购股份的回购报告书 http://static.cninfo.com.cn/finalpage/2022-08-17/1214307555.PDF 
 
