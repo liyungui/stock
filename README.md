@@ -1,94 +1,90 @@
-要约收购 有7条新公告 
+要约收购 有2条新公告 
 
-德邦股份:德邦物流股份有限公司关于宿迁京东卓风企业管理有限公司全面要约收购公司股份的清算公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514957.PDF 
+天域生态:德恒上海律师事务所关于天域生态环境股份有限公司本次非公开发行免于要约收购事项的法律意见书 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527137.PDF 
 
-德邦股份:德邦物流股份有限公司关于宿迁京东卓风企业管理有限公司全面要约收购公司股份结果暨股票复牌的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514956.PDF 
+新钢股份:招商证券关于中国宝武免于发出要约收购新钢股份的持续督导意见 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527087.PDF 
 
-杭齿前进:中信建投证券关于杭州萧山国有资产经营集团有限公司要约收购杭州前进齿轮箱集团股份有限公司之2022年第二季度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514919.PDF 
+潍柴动力 有1条新公告 
 
-路畅科技:华泰联合证券有限责任公司关于中联重科股份有限公司要约收购深圳市路畅科技股份有限公司之2022年半年度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514785.PDF 
+潍柴动力:潍柴动力股份有限公司关于回购部分A股社会公众股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214525142.PDF 
 
-庄园牧场:兰州庄园牧场股份有限公司关于控股股东及其一致行动人免于要约收购的提示性公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514707.PDF 
+海螺水泥 有1条新公告 
 
-泉阳泉:中信证券股份有限公司关于吉林省吉盛资产管理有限公司免于发出要约收购公司的2022年半年度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512812.PDF 
+海螺水泥:採購燃燒促進劑 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527069.PDF 
 
-莱茵生物:光大证券股份有限公司关于桂林莱茵生物科技股份有限公司收购报告书暨免于发出要约收购申请之财务顾问报告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512618.PDF 
+招商银行 有1条新公告 
 
-定向增发 有3条新公告 
+招商银行:招商银行股份有限公司关于2022年第二期绿色金融债券发行完毕的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214525245.PDF 
 
-玉龙股份:关于认购催腾矿业定向增发股票的补充公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214515620.PDF 
+恒瑞医药 有1条新公告 
 
-玉龙股份:独立董事关于公司认购催腾矿业定向增发股票并签署《配售投资意向表》的事前认可意见 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514912.PDF 
+恒瑞医药:恒瑞医药关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214525280.PDF 
 
-玉龙股份:关于认购催腾矿业定向增发股票并签署《配售投资意向表》的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514910.PDF 
+中兴通讯 有1条新公告 
 
-新城控股 有1条新公告 
+中兴通讯:关于按照《香港上市规则》公布2022年8月份证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214526166.PDF 
 
-新城控股:新城控股关于以集中竞价交易方式回购股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512903.PDF 
+旗滨集团 有1条新公告 
 
-福耀玻璃 有2条新公告 
+旗滨集团:旗滨集团关于以集中竞价交易方式回购股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214525435.PDF 
 
-福耀玻璃:福耀玻璃H股公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514878.PDF 
+万华化学 有1条新公告 
 
-福耀玻璃: 福耀玻璃2022年度第八期超短期融资券发行情况公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512859.PDF 
+万华化学:万华化学持股5%以上股东减持股份进展暨权益变动提示公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527057.PDF 
 
-恒瑞医药 有2条新公告 
+美的集团 有4条新公告 
 
-恒瑞医药:恒瑞医药关于获得药品注册证书的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512831.PDF 
+美的集团:关于第七期全球合伙人和第四期事业合伙人持股计划第一个归属期权益归属的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214526105.PDF 
 
-恒瑞医药:恒瑞医药关于获得药物临床试验批准通知书的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512830.PDF 
+美的集团:关于第六期全球合伙人和第三期事业合伙人持股计划第二个归属期权益归属的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214526104.PDF 
 
-药明康德 有1条新公告 
+美的集团:关于第五期全球合伙人和第二期事业合伙人持股计划归属完毕暨锁定期届满的提示性公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214526102.PDF 
 
-药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514966.PDF 
+美的集团:关于员工持股计划管理委员会选聘的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214526101.PDF 
 
-美的集团 有1条新公告 
+中国重汽 有1条新公告 
 
-美的集团:关于回购公司股份进展情况的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514007.PDF 
+中国重汽:关于回购部分A股股份进展情况的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214524467.PDF 
 
-东方雨虹 有1条新公告 
+顺丰控股 有2条新公告 
 
-东方雨虹:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512310.PDF 
+顺丰控股:关于华泰佳越-顺丰产业园一期第2号资产支持专项计划的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214526652.PDF 
 
-昭衍新药 有1条新公告 
+顺丰控股:关于公司回购股份进展暨实施完成的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214526651.PDF 
 
-昭衍新药:昭衍新药关于回购股份方案实施完成暨股份变动的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514962.PDF 
+通威股份 有1条新公告 
 
-生物股份 有3条新公告 
+通威股份:通威股份有限公司关于对外提供担保的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214525317.PDF 
 
-生物股份:经世律师事务所关于金宇生物技术股份有限公司回购注销股权激励限制性股票之法律意见书 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514838.PDF 
+中信建投 有4条新公告 
 
-生物股份:金宇生物技术股份有限公司股权激励限制性股票回购注销实施公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514837.PDF 
+中信建投:董事名單與其角色和職能 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527106.PDF 
 
-生物股份:金宇生物技术股份有限公司关于以集中竞价交易方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514836.PDF 
+中信建投:关于独立非执行董事任职的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527105.PDF 
 
-韦尔股份 有6条新公告 
+中信建投:北京市天元律师事务所关于中信建投证券股份有限公司2022年第一次临时股东大会的法律意见 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527104.PDF 
 
-韦尔股份:第六届监事会第六次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214513049.PDF 
+中信建投:2022年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527103.PDF 
 
-韦尔股份:第六届董事会第六次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214513048.PDF 
+韦尔股份 有1条新公告 
 
-韦尔股份:平安证券股份有限公司关于上海韦尔半导体股份有限公司部分募投项目延期的核查意见 http://static.cninfo.com.cn/finalpage/2022-09-02/1214513047.PDF 
+韦尔股份:关于控股股东部分股权质押的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214525507.PDF 
 
-韦尔股份:独立董事关于第六届董事会第六次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2022-09-02/1214513046.PDF 
+金山办公 有6条新公告 
 
-韦尔股份:关于部分募投项目延期的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214513045.PDF 
+金山办公:金山办公简式权益变动报告书 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527173.PDF 
 
-韦尔股份:关于不向下修正“韦尔转债”转股价格的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214513044.PDF 
+金山办公:金山办公关于召开2022年半年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527172.PDF 
 
-双汇发展 有2条新公告 
+金山办公:金山办公关于实际控制人及一致行动人权益变动的提示性公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527171.PDF 
 
-双汇发展:北京市通商律师事务所关于河南双汇投资发展股份有限公司2022年第一次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514043.PDF 
+金山办公:北京听云律师事务所关于北京金山奇文企业管理咨询有限责任公司及其一致行动人免于发出要约事宜之法律意见书 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527170.PDF 
 
-双汇发展:2022年第一次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214514042.PDF 
+金山办公:开源证券股份有限公司关于北京金山办公软件股份有限公司详式权益变动报告书之财务顾问核查意见 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527169.PDF 
 
-兆易创新 有1条新公告 
+金山办公:金山办公详式权益变动报告书 http://static.cninfo.com.cn/finalpage/2022-09-03/1214527168.PDF 
 
-兆易创新:兆易创新关于2021年股票期权与限制性股票激励计划限制性股票第一期解除限售暨上市公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214515015.PDF 
+用友网络 有1条新公告 
 
-公牛集团 有2条新公告 
-
-公牛集团:公牛集团股份有限公司关于接待机构调研情况的公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512960.PDF 
-
-公牛集团:公牛集团股份有限公司关于以集中竞价交易方式回购股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-02/1214512959.PDF 
+用友网络:用友网络关于以集中竞价方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-03/1214525327.PDF 
 
