@@ -1,54 +1,42 @@
+要约收购 有3条新公告 
+
+山西路桥:中信证券股份有限公司关于山西路桥股份有限公司收购报告书暨豁免要约收购之持续督导总结报告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214547523.PDF 
+
+山西路桥:中信证券股份有限公司关于山西路桥股份有限公司收购报告书暨豁免要约收购之2022年半年度持续督导意见 http://static.cninfo.com.cn/finalpage/2022-09-07/1214547522.PDF 
+
+吉电股份:中银国际证券股份有限公司关于国家电投集团吉林能源投资有限公司及其一致行动人免于以要约方式收购吉林电力股份有限公司之2022年第二季度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546081.PDF 
+
 德赛电池 有1条新公告 
 
-德赛电池:关于召开2022年第三次临时股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214538232.PDF 
+德赛电池:关于2018年限制性股票激励计划第二个解除限售期解除限售股份上市流通的提示性公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546884.PDF 
 
-伊利股份 有1条新公告 
+邮储银行 有1条新公告 
 
-伊利股份:内蒙古伊利实业集团股份有限公司关于2022年度第十六期超短期融资券兑付完成的公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214539808.PDF 
+邮储银行:中国邮政储蓄银行股份有限公司关于稳定股价方案实施进展的公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546942.PDF 
 
-万科A 有2条新公告 
+恒瑞医药 有1条新公告 
 
-万科A:关于按照《香港上市规则》公布2022年8月证券变动月报表的公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214540364.PDF 
+恒瑞医药:恒瑞医药关于完成私募基金备案的公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546906.PDF 
 
-万科A:2022年8月销售及近期新增项目情况简报 http://static.cninfo.com.cn/finalpage/2022-09-06/1214540363.PDF 
+立讯精密 有1条新公告 
 
-牧原股份 有1条新公告 
+立讯精密:关于“立讯转债“转股价格调整的公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214547477.PDF 
 
-牧原股份:2022年8月份生猪销售简报 http://static.cninfo.com.cn/finalpage/2022-09-06/1214540540.PDF 
+千禾味业 有1条新公告 
 
-旗滨集团 有1条新公告 
+千禾味业:千禾味业食品股份有限公司关于召开2022年半年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546112.PDF 
 
-旗滨集团:旗滨集团关于召开2022年半年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214539835.PDF 
+韦尔股份 有1条新公告 
 
-药明康德 有1条新公告 
+韦尔股份:关于控股股东部分股权解除质押的公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546977.PDF 
 
-药明康德:H股公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214539863.PDF 
+汇顶科技 有2条新公告 
 
-中国中免 有1条新公告 
+汇顶科技:关于2022年第二期员工持股计划的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546960.PDF 
 
-中国中免:H股公告-月报表 http://static.cninfo.com.cn/finalpage/2022-09-06/1214539851.PDF 
-
-通威股份 有1条新公告 
-
-通威股份:通威股份有限公司关于受限电政策、泸定地震影响情况的公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214540934.PDF 
-
-中信建投 有1条新公告 
-
-中信建投:截至2022年8月31日止月份之股份發行人的證券變動月報表 http://static.cninfo.com.cn/finalpage/2022-09-06/1214539815.PDF 
-
-双汇发展 有1条新公告 
-
-双汇发展:2022年半年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214540681.PDF 
-
-闻泰科技 有1条新公告 
-
-闻泰科技:关于股东解除部分股权质押的公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214538648.PDF 
+汇顶科技:关于召开2022年半年度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546959.PDF 
 
 公牛集团 有1条新公告 
 
-公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理到期收回的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214538670.PDF 
-
-深南电路 有1条新公告 
-
-深南电路:关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-06/1214540416.PDF 
+公牛集团:公牛集团股份有限公司关于使用部分闲置募集资金进行现金管理的进展公告 http://static.cninfo.com.cn/finalpage/2022-09-07/1214546962.PDF 
 
