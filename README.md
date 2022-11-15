@@ -1,42 +1,18 @@
-要约收购 有2条新公告 
+并购重组 有4条新公告 
 
-上海艾录:关于提请股东大会批准认购对象免于以要约收购方式增持公司股份的公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110716.PDF 
+粤 水 电:大华会计师事务所(特殊普通合伙)广东水电二局股份有限公司并购重组审核委员会审核意见中有关财务事项的说明 http://static.cninfo.com.cn/finalpage/2022-11-16/1215116881.PDF 
 
-*ST山航B:关于要约收购事项的进展公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215107372.PDF 
+粤 水 电:中信证券股份有限公司关于《广东水电二局股份有限公司关于中国证券监督管理委员会上市公司并购重组审核委员会审核意见的回复》之核查意见 http://static.cninfo.com.cn/finalpage/2022-11-16/1215116879.PDF 
 
-爱尔眼科 有14条新公告 
+粤 水 电:广东水电二局股份有限公司关于中国证券监督管理委员会上市公司并购重组审核委员会审核意见的回复公告 http://static.cninfo.com.cn/finalpage/2022-11-16/1215116877.PDF 
 
-爱尔眼科:关于召开2022年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110591.PDF 
+粤 水 电:广东水电二局股份有限公司关于中国证券监督管理委员会上市公司并购重组审核委员会审核意见的回复 http://static.cninfo.com.cn/finalpage/2022-11-16/1215116876.PDF 
 
-爱尔眼科:关于董事会换届选举的公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110590.PDF 
+天味食品 有1条新公告 
 
-爱尔眼科:独立董事关于第五届董事会第六十四次会议相关事项发表的独立意见 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110589.PDF 
+天味食品:关于使用部分闲置募集资金进行现金管理到期赎回并继续进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2022-11-16/1215117093.PDF 
 
-爱尔眼科:独立董事提名人声明（郭月梅） http://static.cninfo.com.cn/finalpage/2022-11-15/1215110588.PDF 
+新城控股 有1条新公告 
 
-爱尔眼科:独立董事提名人声明（高国垒） http://static.cninfo.com.cn/finalpage/2022-11-15/1215110587.PDF 
-
-爱尔眼科:独立董事提名人声明（陈收） http://static.cninfo.com.cn/finalpage/2022-11-15/1215110586.PDF 
-
-爱尔眼科:独立董事候选人声明（郭月梅） http://static.cninfo.com.cn/finalpage/2022-11-15/1215110585.PDF 
-
-爱尔眼科:独立董事候选人声明（高国垒） http://static.cninfo.com.cn/finalpage/2022-11-15/1215110584.PDF 
-
-爱尔眼科:独立董事候选人声明（陈收） http://static.cninfo.com.cn/finalpage/2022-11-15/1215110583.PDF 
-
-爱尔眼科:关于选举产生第六届监事会职工代表监事的公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110582.PDF 
-
-爱尔眼科:关于监事会换届选举的公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110578.PDF 
-
-爱尔眼科:关于变更公司注册地址、修订公司章程及办理工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110577.PDF 
-
-爱尔眼科:第五届监事会第三十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110576.PDF 
-
-爱尔眼科:第五届董事会第六十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215110575.PDF 
-
-德赛电池 有2条新公告 
-
-德赛电池:2022年第四次临时股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2022-11-15/1215108875.PDF 
-
-德赛电池:2022年第四次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2022-11-15/1215108874.PDF 
+新城控股:新城控股关于召开2022年三季度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2022-11-16/1215115811.PDF 
 
