@@ -1,12 +1,14 @@
-东方日升 有5条新公告 
+要约收购 有1条新公告 
 
-东方日升:中信建投证券股份有限公司关于东方日升新能源股份有限公司向特定对象发行股票并在创业板上市之上市保荐书 http://static.cninfo.com.cn/finalpage/2023-02-10/1215817610.PDF 
+海螺新材:关于提请股东大会批准安徽海螺集团有限责任公司及其一致行动人免于以要约收购方式增持公司股份的公告 http://static.cninfo.com.cn/finalpage/2023-02-11/1215831560.PDF 
 
-东方日升:关于控股股东、实际控制人持股比例被动稀释超过1％的公告 http://static.cninfo.com.cn/finalpage/2023-02-10/1215817608.PDF 
+天味食品 有2条新公告 
 
-东方日升:关于董事、监事和高级管理人员持股情况变动的公告 http://static.cninfo.com.cn/finalpage/2023-02-10/1215817606.PDF 
+天味食品:关于使用部分闲置自有资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2023-02-11/1215829440.PDF 
 
-东方日升:关于创业板向特定对象发行股票上市公告书披露的提示性公告 http://static.cninfo.com.cn/finalpage/2023-02-10/1215817604.PDF 
+天味食品:关于使用部分闲置募集资金进行现金管理到期赎回的公告 http://static.cninfo.com.cn/finalpage/2023-02-11/1215829439.PDF 
 
-东方日升:东方日升新能源股份有限公司创业板向特定对象发行股票上市公告书 http://static.cninfo.com.cn/finalpage/2023-02-10/1215817603.PDF 
+新城控股 有1条新公告 
+
+新城控股:新城控股关于暂无法与公司董事、高管取得联系的公告 http://static.cninfo.com.cn/finalpage/2023-02-11/1215830933.PDF 
 
