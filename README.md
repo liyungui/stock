@@ -1,4 +1,6 @@
-并购重组 有1条新公告 
+天味食品 有2条新公告 
 
-立方制药:上市公司并购重组财务顾问专业意见附表第2号——重大资产重组 http://static.cninfo.com.cn/finalpage/2023-03-03/1216040184.PDF 
+天味食品:关于公司及全资子公司完成工商变更登记并换发营业执照的公告 http://static.cninfo.com.cn/finalpage/2023-03-04/1216050132.PDF 
+
+天味食品:关于使用部分闲置募集资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2023-03-04/1216050131.PDF 
 
