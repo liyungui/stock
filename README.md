@@ -1,12 +1,28 @@
-要约收购 有5条新公告 
+并购重组 有1条新公告 
 
-*ST山航B:北京市海问律师事务所关于山东航空股份有限公司要约收购报告书之法律意见书 http://static.cninfo.com.cn/finalpage/2023-03-22/1216180342.PDF 
+鲁西化工:关于深圳证券交易所并购重组审核委员会审核公司发行股份吸收合并事项会议安排的公告 http://static.cninfo.com.cn/finalpage/2023-03-23/1216191343.PDF 
 
-*ST山航B:关于披露要约收购报告书的提示性公告 http://static.cninfo.com.cn/finalpage/2023-03-22/1216180340.PDF 
+天味食品 有3条新公告 
 
-*ST山航B:要约收购报告书 http://static.cninfo.com.cn/finalpage/2023-03-22/1216180339.PDF 
+天味食品:关于控股股东增加一致行动人及一致行动人之间内部转让股份计划的提示性公告 http://static.cninfo.com.cn/finalpage/2023-03-23/1216189837.PDF 
 
-*ST山航B:中国国际金融股份有限公司关于中国国际航空股份有限公司要约收购山东航空股份有限公司之财务顾问报告 http://static.cninfo.com.cn/finalpage/2023-03-22/1216180338.PDF 
+天味食品:2022年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2023-03-23/1216189836.PDF 
 
-百大集团:中信建投证券股份有限公司关于西子国际控股有限公司要约收购百大集团股份有限公司之持续督导意见 http://static.cninfo.com.cn/finalpage/2023-03-22/1216177423.PDF 
+天味食品:国浩律师（成都）事务所关于四川天味食品集团股份有限公司2022年年度股东大会之法律意见书 http://static.cninfo.com.cn/finalpage/2023-03-23/1216189835.PDF 
+
+德赛电池 有7条新公告 
+
+德赛电池:中信证券股份有限公司关于深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市之上市保荐书 http://static.cninfo.com.cn/finalpage/2023-03-23/1216188428.PDF 
+
+德赛电池:关于申请向原股东配售股份的审核问询函回复及配股说明书等申请文件更新的提示性公告 http://static.cninfo.com.cn/finalpage/2023-03-23/1216188427.PDF 
+
+德赛电池:中信证券股份有限公司关于深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市之发行保荐书 http://static.cninfo.com.cn/finalpage/2023-03-23/1216188426.PDF 
+
+德赛电池:深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市配股说明书（修订稿） http://static.cninfo.com.cn/finalpage/2023-03-23/1216188425.PDF 
+
+德赛电池:关于深圳市德赛电池科技股份有限公司申请向原股东配售股份的审核问询函之回复报告 http://static.cninfo.com.cn/finalpage/2023-03-23/1216188424.PDF 
+
+德赛电池:大华会计师事务所（特殊普通合伙）关于深圳市德赛电池科技股份有限公司申请向原股东配售股份的审核问询函中有关财务事项的说明 http://static.cninfo.com.cn/finalpage/2023-03-23/1216188423.PDF 
+
+德赛电池:国浩律师（深圳）事务所关于深圳市德赛电池科技股份有限公司向原股东配售股份之补充法律意见书（一） http://static.cninfo.com.cn/finalpage/2023-03-23/1216188422.PDF 
 
