@@ -1,4 +1,10 @@
-要约收购 有1条新公告 
+天味食品 有1条新公告 
 
-神州细胞:北京市金杜律师事务所关于谢良志先生及拉萨爱力克投资咨询有限公司免于发出收购要约事宜之法律意见书 http://static.cninfo.com.cn/finalpage/2023-05-26/1216907559.PDF 
+天味食品:关于使用部分闲置募集资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2023-05-27/1216920770.PDF 
+
+德赛电池 有2条新公告 
+
+德赛电池:2022年年度股东大会的法律意见书 http://static.cninfo.com.cn/finalpage/2023-05-27/1216919852.PDF 
+
+德赛电池:2022年年度股东大会决议公告 http://static.cninfo.com.cn/finalpage/2023-05-27/1216919851.PDF 
 
