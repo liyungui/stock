@@ -1,4 +1,6 @@
-要约收购 有1条新公告 
+邮储银行 有2条新公告 
 
-密尔克卫:密尔克卫化工供应链服务股份有限公司关于拟以要约方式收购LHN Logistics Limited 100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-06-05/1216985535.PDF 
+邮储银行:中国国际金融股份有限公司、中邮证券有限责任公司关于中国邮政储蓄银行股份有限公司首次公开发行限售股上市流通的核查意见 http://static.cninfo.com.cn/finalpage/2023-06-06/1216993590.PDF 
+
+邮储银行:中国邮政储蓄银行股份有限公司关于首次公开发行限售股上市流通的公告 http://static.cninfo.com.cn/finalpage/2023-06-06/1216993589.PDF 
 
