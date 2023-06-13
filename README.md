@@ -1,20 +1,12 @@
-兴齐眼药 有9条新公告 
+要约收购 有1条新公告 
 
-兴齐眼药:关于召开2023年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2023-06-13/1217042081.PDF 
+安凯客车:上海锦天城（合肥）律师事务所关于安徽江淮汽车集团股份有限公司免于要约收购义务的法律意见书 http://static.cninfo.com.cn/finalpage/2023-06-14/1217052667.PDF 
 
-兴齐眼药:海通证券股份有限公司关于沈阳兴齐眼药股份有限公司变更部分募集资金投资项目实施地点的核查意见 http://static.cninfo.com.cn/finalpage/2023-06-13/1217042080.PDF 
+并购重组 有1条新公告 
 
-兴齐眼药:沈阳兴齐眼药股份有限公司章程修正案（2023年6月） http://static.cninfo.com.cn/finalpage/2023-06-13/1217042079.PDF 
+中瓷电子:关于深圳证券交易所并购重组审核委员会审核公司发行股份购买资产并募集配套资金暨关联交易事项会议安排的公告 http://static.cninfo.com.cn/finalpage/2023-06-14/1217053788.PDF 
 
-兴齐眼药:第四届监事会第十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-06-13/1217042078.PDF 
+金域医学 有1条新公告 
 
-兴齐眼药:关于变更部分募集资金投资项目实施地点的公告 http://static.cninfo.com.cn/finalpage/2023-06-13/1217042077.PDF 
-
-兴齐眼药:关于变更公司住所并修订公司章程的公告 http://static.cninfo.com.cn/finalpage/2023-06-13/1217042076.PDF 
-
-兴齐眼药:沈阳兴齐眼药股份有限公司章程 http://static.cninfo.com.cn/finalpage/2023-06-13/1217042075.PDF 
-
-兴齐眼药:独立董事关于第四届董事会第二十次会议相关事项发表的独立意见 http://static.cninfo.com.cn/finalpage/2023-06-13/1217042074.PDF 
-
-兴齐眼药:第四届董事会第二十次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-06-13/1217042073.PDF 
+金域医学:广州金域医学检验集团股份有限公司关于完成工商变更登记并换发营业执照的公告 http://static.cninfo.com.cn/finalpage/2023-06-14/1217052144.PDF 
 
