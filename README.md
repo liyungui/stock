@@ -1,6 +1,10 @@
 要约收购 有2条新公告 
 
-创维数字:关于深圳创维-RGB电子有限公司要约收购公司股份的第二次提示性公告 http://static.cninfo.com.cn/finalpage/2023-06-16/1217074090.PDF 
+蓝丰生化:关于提请股东大会批准认购对象及其一致行动人免于发出收购要约的公告 http://static.cninfo.com.cn/finalpage/2023-06-17/1217086227.PDF 
 
-钱江摩托:关于变更吉利迈捷投资有限公司免于发出要约收购公司非公开发行股票持续督导财务顾问主办人的公告 http://static.cninfo.com.cn/finalpage/2023-06-16/1217073731.PDF 
+佛慈制药:关于实施2022年度权益分派导致要约收购价格调整的提示性公告 http://static.cninfo.com.cn/finalpage/2023-06-17/1217084318.PDF 
+
+并购重组 有1条新公告 
+
+荣盛发展:关于对深圳证券交易所并购重组问询函的回复公告 http://static.cninfo.com.cn/finalpage/2023-06-17/1217087429.PDF 
 
