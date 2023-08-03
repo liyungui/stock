@@ -1,6 +1,12 @@
-要约收购 有2条新公告 
+并购重组 有1条新公告 
 
-密尔克卫:密尔克卫化工供应链服务股份有限公司关于以要约方式收购LHN Logistics Limited股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-08-03/1217453616.PDF 
+川能动力:四川省新能源动力股份有限公司关于深圳证券交易所并购重组审核委员会审核公司发行股份购买资产并募集配套资金事项会议安排的公告 http://static.cninfo.com.cn/finalpage/2023-08-04/1217461027.PDF 
 
-佛慈制药:关于佛慈集团股东与甘肃国投签订股权收购协议暨要约收购进展公告 http://static.cninfo.com.cn/finalpage/2023-08-03/1217452756.PDF 
+天味食品 有1条新公告 
+
+天味食品:关于使用部分闲置募集资金进行现金管理到期赎回的公告 http://static.cninfo.com.cn/finalpage/2023-08-04/1217460420.PDF 
+
+科顺股份 有1条新公告 
+
+科顺股份:向不特定对象发行可转换公司债券发行提示性公告 http://static.cninfo.com.cn/finalpage/2023-08-04/1217458678.PDF 
 
