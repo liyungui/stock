@@ -1,4 +1,4 @@
-要约收购 有1条新公告 
+科顺股份 有1条新公告 
 
-佛慈制药:要约收购报告书摘要（修订稿) http://static.cninfo.com.cn/finalpage/2023-08-05/1217467051.PDF 
+科顺股份:向不特定对象发行可转换公司债券网上发行中签率及优先配售结果公告 http://static.cninfo.com.cn/finalpage/2023-08-07/1217468830.PDF 
 
