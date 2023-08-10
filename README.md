@@ -1,12 +1,6 @@
-要约收购 有1条新公告 
+并购重组 有2条新公告 
 
-乾景园林:关于拟提请股东大会审议同意免于发出收购要约的公告 http://static.cninfo.com.cn/finalpage/2023-08-10/1217502672.PDF 
+川能动力:关于公司发行股份购买资产并募集配套资金事项获得深圳证券交易所并购重组审核委员会审核通过的公告 http://static.cninfo.com.cn/finalpage/2023-08-11/1217512106.PDF 
 
-新城控股 有1条新公告 
-
-新城控股:新城控股2023年7月份经营简报 http://static.cninfo.com.cn/finalpage/2023-08-10/1217500380.PDF 
-
-科顺股份 有1条新公告 
-
-科顺股份:向不特定对象发行可转换公司债券发行结果公告 http://static.cninfo.com.cn/finalpage/2023-08-10/1217501381.PDF 
+佳电股份:关于延期回复深圳证券交易所并购重组问询函的公告 http://static.cninfo.com.cn/finalpage/2023-08-11/1217510897.PDF 
 
