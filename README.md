@@ -1,8 +1,16 @@
-要约收购 有3条新公告 
+东方日升 有5条新公告 
 
-凯赛生物:上海市锦天城律师事务所关于上海曜修免于以要约收购方式增持公司股份的法律意见书 http://static.cninfo.com.cn/finalpage/2023-08-18/1217564344.PDF 
+东方日升:独立董事关于相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2023-08-19/1217579300.PDF 
 
-凯赛生物:上海凯赛生物技术股份有限公司关于上海曜修生物技术合伙企业（有限合伙）免于以要约收购方式增持公司股份的公告 http://static.cninfo.com.cn/finalpage/2023-08-18/1217564329.PDF 
+东方日升:关于召开2023年第三次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2023-08-19/1217579299.PDF 
 
-甘肃能化:北京市盈科（兰州）律师事务所关于甘肃能源化工投资集团有限公司豁免要约收购的法律意见书 http://static.cninfo.com.cn/finalpage/2023-08-18/1217560621.PDF 
+东方日升:关于以集中竞价交易方式回购股份的方案 http://static.cninfo.com.cn/finalpage/2023-08-19/1217579298.PDF 
+
+东方日升:第四届监事会第二次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-08-19/1217579297.PDF 
+
+东方日升:第四届董事会第三次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-08-19/1217579296.PDF 
+
+天味食品 有1条新公告 
+
+天味食品:董事、高级管理人员集中竞价减持股份结果公告 http://static.cninfo.com.cn/finalpage/2023-08-19/1217575820.PDF 
 
