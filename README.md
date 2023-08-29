@@ -1,36 +1,38 @@
-要约收购 有2条新公告 
+要约收购 有1条新公告 
 
-矩子科技:国浩律师（上海）事务所关于杨勇认购上海矩子科技股份有限公司向特定对象发行股票豁免要约收购事宜之法律意见书 http://static.cninfo.com.cn/finalpage/2023-08-29/1217678484.PDF 
+奥来德:北京德恒律师事务所关于轩景泉轩菱忆认购吉林奥来德光电材料股份有限公司向特定对象发行股票涉及的豁免要约收购事宜的法律意见 http://static.cninfo.com.cn/finalpage/2023-08-30/1217701964.PDF 
 
-密尔克卫:密尔克卫化工供应链服务股份有限公司关于以要约方式收购LHN Logistics Limited股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217674765.PDF 
+并购重组 有1条新公告 
 
-定向增发 有1条新公告 
+德马科技:德马科技集团股份有限公司关于发行股份及支付现金购买资产暨关联交易事项获得上海证券交易所并购重组审核委员会审议通过的公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217701946.PDF 
 
-北方导航:中兵航联科技股份有限公司拟定向增发股份项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217675988.PDF 
+科顺股份 有14条新公告 
 
-天味食品 有1条新公告 
+科顺股份:关于拟向银行申请授信额度的公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695109.PDF 
 
-天味食品:关于使用部分闲置募集资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217679211.PDF 
+科顺股份:关于董事、高级管理人员离职的公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695108.PDF 
 
-兴齐眼药 有10条新公告 
+科顺股份:国泰君安关于科顺股份2023年半年度持续督导跟踪报告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695107.PDF 
 
-兴齐眼药:2023年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670553.PDF 
+科顺股份:国泰君安关于科顺股份使用暂时闲置募集资金进行现金管理的核查意见 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695106.PDF 
 
-兴齐眼药:关于召开2023年第二次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670551.PDF 
+科顺股份:2023年半年度报告摘要 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695105.PDF 
 
-兴齐眼药:2023年半年度报告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670550.PDF 
+科顺股份:关于使用部分暂时闲置募集资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695103.PDF 
 
-兴齐眼药:独立董事关于第四届董事会第二十一次会议相关事项发表的独立意见 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670548.PDF 
+科顺股份:关于签订募集资金三方监管协议的公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695101.PDF 
 
-兴齐眼药:2023年半年度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670546.PDF 
+科顺股份:董事会决议公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695100.PDF 
 
-兴齐眼药:2023年半年度审计报告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670543.PDF 
+科顺股份:关于公司高管亲属短线交易及致歉的公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695099.PDF 
 
-兴齐眼药:监事会决议公告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670539.PDF 
+科顺股份:2023年半年度非经营性资金占用及其他关联资金往来情况汇总表 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695098.PDF 
 
-兴齐眼药:2023年半年度募集资金存放与使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670538.PDF 
+科顺股份:监事会决议公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695097.PDF 
 
-兴齐眼药:董事会决议公告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670537.PDF 
+科顺股份:关于计提信用及资产减值准备的公告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695096.PDF 
 
-兴齐眼药:关于2023年半年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2023-08-29/1217670536.PDF 
+科顺股份:2023年半年度报告 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695095.PDF 
+
+科顺股份:独立董事关于公司第三届董事会第二十三次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2023-08-30/1217695094.PDF 
 
