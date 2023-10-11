@@ -1,8 +1,6 @@
-要约收购 有1条新公告 
+天味食品 有2条新公告 
 
-佛慈制药:关于甘肃省国有资产投资集团有限公司要约收购公司股份的第二次提示性公告 http://static.cninfo.com.cn/finalpage/2023-10-11/1218003615.PDF 
+天味食品:关于2023年半年度报告的信息披露监管工作函的回复 http://static.cninfo.com.cn/finalpage/2023-10-12/1218012987.PDF 
 
-德赛电池 有1条新公告 
-
-德赛电池:关于召开2023年第二次临时股东大会的提示性公告 http://static.cninfo.com.cn/finalpage/2023-10-11/1218002295.PDF 
+天味食品:2023年第二次临时股东大会会议资料 http://static.cninfo.com.cn/finalpage/2023-10-12/1218012259.PDF 
 
