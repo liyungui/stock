@@ -1,16 +1,28 @@
 要约收购 有1条新公告 
 
-佛慈制药:关于甘肃省国有资产投资集团有限公司要约收购期满暨股票停牌的公告 http://static.cninfo.com.cn/finalpage/2023-10-24/1218122349.PDF 
+勤上股份:北京市天元律师事务所关于东莞市晶腾达企业管理合伙企业（有限合伙）免于发出收购要约的补充法律意见书 http://static.cninfo.com.cn/finalpage/2023-10-25/1218136100.PDF 
 
-邮储银行 有1条新公告 
+东方日升 有2条新公告 
 
-邮储银行:中国邮政储蓄银行股份有限公司关于召开2023年第三季度业绩发布会的公告 http://static.cninfo.com.cn/finalpage/2023-10-24/1218123813.PDF 
+东方日升:2023年三季度报告 http://static.cninfo.com.cn/finalpage/2023-10-25/1218135056.PDF 
 
-兴齐眼药 有3条新公告 
+东方日升:2023年第三季度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2023-10-25/1218135055.PDF 
 
-兴齐眼药:2023年第三季度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2023-10-24/1218121908.PDF 
+天味食品 有1条新公告 
 
-兴齐眼药:关于全资子公司完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2023-10-24/1218121907.PDF 
+天味食品:关于召开2023年第三季度业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2023-10-25/1218133696.PDF 
 
-兴齐眼药:2023年三季度报告 http://static.cninfo.com.cn/finalpage/2023-10-24/1218121905.PDF 
+爱美客 有6条新公告 
+
+爱美客:关于公司第三届董事会第九次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2023-10-25/1218133617.PDF 
+
+爱美客:关于部分募集资金投资项目延期的公告 http://static.cninfo.com.cn/finalpage/2023-10-25/1218133616.PDF 
+
+爱美客:2023年三季度报告 http://static.cninfo.com.cn/finalpage/2023-10-25/1218133615.PDF 
+
+爱美客:第三届董事会第九次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-10-25/1218133614.PDF 
+
+爱美客:中信证券股份有限公司关于爱美客技术发展股份有限公司部分募集资金投资项目延期的核查意见 http://static.cninfo.com.cn/finalpage/2023-10-25/1218133613.PDF 
+
+爱美客:第三届监事会第七次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-10-25/1218133611.PDF 
 
