@@ -1,32 +1,84 @@
-要约收购 有9条新公告 
+要约收购 有15条新公告 
 
-德龙激光:德龙激光关于拟收购Corning Laser Technologies GmbH 100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-10/1218294537.PDF 
+华电能源:中国国际金融股份有限公司关于华电能源股份有限公司收购报告书的2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-11/1218308291.PDF 
 
-中钢洛耐:中国国际金融股份有限公司关于中钢洛耐科技股份有限公司收购报告书之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-10/1218294345.PDF 
+中再资环:中再资环收购报告书 http://static.cninfo.com.cn/finalpage/2023-11-11/1218308290.PDF 
 
-妙可蓝多:中国国际金融股份有限公司关于内蒙古蒙牛乳业（集团）股份有限公司要约收购公司的持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292889.PDF 
+协鑫能科:关于收购协鑫新能源控股有限公司子公司股权暨关联交易事项补充说明的公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218308264.PDF 
 
-四川路桥:申万宏源证券承销保荐有限责任公司关于蜀道投资集团有限责任公司免于发出要约收购四川路桥建设集团股份有限公司的持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292609.PDF 
+中再资环:北京市中伦文德律师事务所关于中国再生资源开发集团有限公司免于发出要约事项之法律意见书 http://static.cninfo.com.cn/finalpage/2023-11-11/1218308220.PDF 
 
-藏格矿业:关于产业发展基金收购国能矿业股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292119.PDF 
+中再资环:中再资环收购报告书摘要 http://static.cninfo.com.cn/finalpage/2023-11-11/1218308219.PDF 
 
-孩子王:关于现金收购乐友国际商业集团有限公司65%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292103.PDF 
+中再资环:北京市中伦文德律师事务所关于《中再资源环境股份有限公司收购报告书》的法律意见书 http://static.cninfo.com.cn/finalpage/2023-11-11/1218308218.PDF 
 
-中钢天源:中国国际金融股份有限公司关于中钢天源股份有限公司收购报告书之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292041.PDF 
+胜宏科技:关于收购Pole Star Limited  100%股权的进展暨风险提示公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218308179.PDF 
 
-芒果超媒:中信证券股份有限公司关于湖南广播影视集团有限公司免于发出要约收购芒果超媒股份有限公司之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-10/1218291980.PDF 
+白银有色:中信证券股份有限公司关于白银有色集团股份有限公司收购报告书之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307942.PDF 
 
-中钢国际:中金公司关于中钢国际收购报告书之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-10/1218291920.PDF 
+荣联科技:西南证券股份有限公司关于山东经达科技产业发展有限公司收购荣联科技集团股份有限公司之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307061.PDF 
 
-并购重组 有5条新公告 
+道恩股份:关于收购广东现代工程塑料有限公司100%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218306634.PDF 
 
-雅运股份:上海雅运纺织化工股份有限公司关于拟调整重大资产重组方案的停牌公告 http://static.cninfo.com.cn/finalpage/2023-11-10/1218293067.PDF 
+中信尼雅:中信证券股份有限公司关于中信尼雅葡萄酒股份有限公司收购报告书之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-11/1218306425.PDF 
 
-宝地矿业:新疆天阳律师事务所关于新疆宝地矿业股份有限公司重大资产重组暨关联交易实施情况之法律意见书 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292911.PDF 
+上海莱士:关于收购广西冠峰生物制品有限公司股权暨签署《股权收购协议》的公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218305891.PDF 
 
-*ST同达:同达创业关于重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292863.PDF 
+重庆港:西南证券关于重庆港收购报告书之2023年第三季度持续督导意见（控股股东港务物流集团从两江新区管委会划转至重庆市国资委） http://static.cninfo.com.cn/finalpage/2023-11-11/1218305755.PDF 
 
-深高速:关于南京风电并购协议履行进展的公告 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292673.PDF 
+重庆港:西南证券关于重庆港收购报告书之2023年第三季度持续督导意见（控股股东港务物流集团从重庆市国资委划转至重庆物流集团） http://static.cninfo.com.cn/finalpage/2023-11-11/1218305754.PDF 
 
-软通动力:关于向银行申请并购贷款的公告 http://static.cninfo.com.cn/finalpage/2023-11-10/1218292220.PDF 
+ST国安:中信证券股份有限公司关于中信国安信息产业股份有限公司收购报告书之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-11/1218305681.PDF 
+
+并购重组 有11条新公告 
+
+雅运股份:上海雅运纺织化工股份有限公司董事会关于本次交易是否构成重大资产重组、关联交易及重组上市的说明 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307400.PDF 
+
+雅运股份:上海雅运纺织化工股份有限公司董事会关于本次重组履行法定程序的完备性、合规性及提交的法律文件的有效性的说明 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307398.PDF 
+
+雅运股份:上海雅运纺织化工股份有限公司关于披露重组预案的一般风险提示暨公司股票复牌的公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307396.PDF 
+
+雅运股份:上海雅运纺织化工股份有限公司董事会关于本次重组符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307395.PDF 
+
+雅运股份:上海雅运纺织化工股份有限公司董事会关于本次重组相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条情形的说明 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307391.PDF 
+
+雅运股份:上海雅运纺织化工股份有限公司董事会关于本次交易符合《上市公司重大资产重组管理办法》第十一条、第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307388.PDF 
+
+雅运股份:上海雅运纺织化工股份有限公司关于重大资产重组进展暨无法在规定时间内发出股东大会通知的专项说明 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307386.PDF 
+
+雅运股份:上海雅运纺织化工股份有限公司董事会关于公司股票价格波动是否达到《上海证券交易所上市公司自律监管指引第6号——重大资产重组》相关标准的说明 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307385.PDF 
+
+华夏幸福:华夏幸福关于设立《债务重组计划》相关信托计划的公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218306430.PDF 
+
+华夏幸福:华夏幸福关于债务逾期、债务重组进展等事项的公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218306429.PDF 
+
+展鹏科技:展鹏科技股份有限公司关于筹划重大资产重组事项的停牌进展公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218304956.PDF 
+
+天味食品 有1条新公告 
+
+天味食品:关于使用部分闲置募集资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218305081.PDF 
+
+德赛电池 有11条新公告 
+
+德赛电池:国浩律师（深圳）事务所关于深圳市德赛电池科技股份有限公司向原股东配售股份会后重大事项之核查意见 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307051.PDF 
+
+德赛电池:大华会计师事务所 (特殊普通合伙)关于深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市之会后重大事项的核查意见 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307045.PDF 
+
+德赛电池:中信证券股份有限公司关于深圳市德赛电池科技股份有限公司向原股东配售股份项目会后重大事项的承诺函 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307037.PDF 
+
+德赛电池:关于向原股东配售股份会后事项相关文件披露的提示性公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307029.PDF 
+
+德赛电池:深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市配股说明书（2023年三季报数据更新稿） http://static.cninfo.com.cn/finalpage/2023-11-11/1218307019.PDF 
+
+德赛电池:中信证券股份有限公司关于深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市之会后重大事项的核查意见 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307016.PDF 
+
+德赛电池:大华会计师事务所 (特殊普通合伙)关于深圳市德赛电池科技股份有限公司向原股东配售股份项目会后重大事项的承诺函 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307015.PDF 
+
+德赛电池:国浩律师（深圳）事务所关于深圳市德赛电池科技股份有限公司向原股东配售股份会后重大事项的承诺函 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307014.PDF 
+
+德赛电池:深圳市德赛电池科技股份有限公司关于向原股东配售股份项目的会后事项说明及承诺函 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307013.PDF 
+
+德赛电池:关于参加2023年深圳辖区上市公司投资者网上集体接待日活动的公告 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307012.PDF 
+
+德赛电池:中信证券股份有限公司关于深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市之发行保荐书 http://static.cninfo.com.cn/finalpage/2023-11-11/1218307011.PDF 
 
