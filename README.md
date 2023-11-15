@@ -1,40 +1,30 @@
-要约收购 有11条新公告 
+要约收购 有7条新公告 
 
-兴瑞科技:中国国际金融股份有限公司关于宁波兴瑞电子科技股份有限公司收购慈溪骏瑞房屋租赁有限公司100%股权暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2023-11-15/1218332020.PDF 
+国海证券:上海上正恒泰律师事务所关于广西投资集团有限公司及其一致行动人认购国海证券股份有限公司向特定对象发行股票免于发出要约事项之法律意见书 http://static.cninfo.com.cn/finalpage/2023-11-16/1218353326.PDF 
 
-兴瑞科技:宁波兴瑞电子科技股份有限公司拟收购股权涉及的慈溪骏瑞房屋租赁有限公司股东全部权益价值评估项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218332014.PDF 
+海南矿业:海南矿业股份有限公司拟收购上海复星高科技集团财务有限公司4.50%股权所涉及的股东全部权益价值资产评估报告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218352654.PDF 
 
-兴瑞科技:关于收购慈溪骏瑞房屋租赁有限公司100%股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218332011.PDF 
+天音控股:关于全资子公司收购唯科终端技术（东莞）有限公司30%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351781.PDF 
 
-兴瑞科技:关于终止收购资产暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218332004.PDF 
+京能热力:光大证券股份有限公司关于北京京能热力股份有限公司收购报告书之财务顾问报告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351503.PDF 
 
-兴瑞科技:中国国际金融股份有限公司关于宁波兴瑞电子科技股份有限公司终止收购资产暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2023-11-15/1218332003.PDF 
+京能热力:收购报告书 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351501.PDF 
 
-赛意信息:关于全资子公司收购思诺博100%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218330186.PDF 
+京能热力:北京市盈科律师事务所关于《北京京能热力股份有限公司收购报告书》法律意见书 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351499.PDF 
 
-建元信托:中信证券股份有限公司关于上海砥安投资管理有限公司收购建元信托股份有限公司向特定对象发行A股股票之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-15/1218330159.PDF 
-
-建元信托:中信证券股份有限公司关于中国信托业保障基金有限责任公司收购建元信托股份有限公司部分股权之2023年第三季度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218330158.PDF 
-
-中原环保:关于以公开摘牌方式收购控股子公司少数股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218329847.PDF 
-
-南山控股:关于行使华泰佳越-宝湾物流一期资产支持专项计划优先收购权的公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218329749.PDF 
-
-同方股份:中信证券股份有限公司关于中国宝原投资有限公司免于发出要约收购同方股份有限公司之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-15/1218329676.PDF 
+唯科科技:关于收购宇科塑料（厦门）有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351378.PDF 
 
 混合所有制改革 有1条新公告 
 
-甬矽电子:关于控股子公司拟投资建设高密度及混合集成电路封装测试项目的公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218330166.PDF 
+中兵红箭:德邦证券股份有限公司关于中兵红箭股份有限股权分置改革持续督导之保荐总结报告书 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351130.PDF 
 
-并购重组 有3条新公告 
+并购重组 有4条新公告 
 
-宁夏建材:中国国际金融股份有限公司关于本次重组方案调整不构成重大调整的核查意见 http://static.cninfo.com.cn/finalpage/2023-11-15/1218332110.PDF 
+盈方微:关于筹划重大资产重组事项的停牌进展公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218353048.PDF 
 
-宁夏建材:宁夏建材关于本次重组方案调整不构成重大调整的公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218332098.PDF 
+*ST同达:同达创业关于终止重大资产重组的公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218352435.PDF 
 
-深纺织Ａ:关于拟调整重大资产重组方案的停牌公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218331956.PDF 
+*ST同达:同达创业独立董事对终止重组的事前认可及独立意见 http://static.cninfo.com.cn/finalpage/2023-11-16/1218352434.PDF 
 
-金域医学 有1条新公告 
-
-金域医学:广州金域医学检验集团股份有限公司关于回购股份实施结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2023-11-15/1218330002.PDF 
+三变科技:关于投资设立的并购基金进展公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218350319.PDF 
 
