@@ -1,30 +1,32 @@
-要约收购 有7条新公告 
+要约收购 有10条新公告 
 
-国海证券:上海上正恒泰律师事务所关于广西投资集团有限公司及其一致行动人认购国海证券股份有限公司向特定对象发行股票免于发出要约事项之法律意见书 http://static.cninfo.com.cn/finalpage/2023-11-16/1218353326.PDF 
+北大医药:中国国际金融股份有限公司关于北大医药股份有限公司收购报告书之2023年第三季度持续督导意见 http://static.cninfo.com.cn/finalpage/2023-11-17/1218363815.PDF 
 
-海南矿业:海南矿业股份有限公司拟收购上海复星高科技集团财务有限公司4.50%股权所涉及的股东全部权益价值资产评估报告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218352654.PDF 
+佛慈制药:中德证券有限责任公司关于兰州佛慈制药股份有限公司收购报告书之2023年三季度持续督导意见暨持续督导总结报告 http://static.cninfo.com.cn/finalpage/2023-11-17/1218363716.PDF 
 
-天音控股:关于全资子公司收购唯科终端技术（东莞）有限公司30%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351781.PDF 
+春秋航空:北京市嘉源律师事务所关于春秋航空股份有限公司收购报告书暨免于发出要约事宜之法律意见书 http://static.cninfo.com.cn/finalpage/2023-11-17/1218363638.PDF 
 
-京能热力:光大证券股份有限公司关于北京京能热力股份有限公司收购报告书之财务顾问报告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351503.PDF 
+春秋航空:春秋航空收购报告书 http://static.cninfo.com.cn/finalpage/2023-11-17/1218363637.PDF 
 
-京能热力:收购报告书 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351501.PDF 
+春秋航空:春秋航空收购报告书摘要 http://static.cninfo.com.cn/finalpage/2023-11-17/1218363636.PDF 
 
-京能热力:北京市盈科律师事务所关于《北京京能热力股份有限公司收购报告书》法律意见书 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351499.PDF 
+世联行:关于控股股东、实际控制人持有表决权比例因公司注销回购股份被动增加至30%以上暨免于要约收购的提示性公告 http://static.cninfo.com.cn/finalpage/2023-11-17/1218363210.PDF 
 
-唯科科技:关于收购宇科塑料（厦门）有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351378.PDF 
+骆驼股份:北京德恒律师事务所关于孙洁女士免于发出要约的法律意见 http://static.cninfo.com.cn/finalpage/2023-11-17/1218362754.PDF 
 
-混合所有制改革 有1条新公告 
+骆驼股份:骆驼股份收购报告书 http://static.cninfo.com.cn/finalpage/2023-11-17/1218362753.PDF 
 
-中兵红箭:德邦证券股份有限公司关于中兵红箭股份有限股权分置改革持续督导之保荐总结报告书 http://static.cninfo.com.cn/finalpage/2023-11-16/1218351130.PDF 
+骆驼股份:骆驼股份收购报告书摘要 http://static.cninfo.com.cn/finalpage/2023-11-17/1218362751.PDF 
+
+保变电气:保定天威保变电气股份有限公司关于通过公开摘牌方式参与竞拍收购控股子公司8.21%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-17/1218361696.PDF 
 
 并购重组 有4条新公告 
 
-盈方微:关于筹划重大资产重组事项的停牌进展公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218353048.PDF 
+重庆百货:重庆百货大楼股份有限公司关于上海证券交易所并购重组审核委员会审核公司吸收合并重庆商社（集团）有限公司暨关联交易事项会议安排的公告 http://static.cninfo.com.cn/finalpage/2023-11-17/1218363665.PDF 
 
-*ST同达:同达创业关于终止重大资产重组的公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218352435.PDF 
+云南城投:云南城投置业股份有限公司关于重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-17/1218362689.PDF 
 
-*ST同达:同达创业独立董事对终止重组的事前认可及独立意见 http://static.cninfo.com.cn/finalpage/2023-11-16/1218352434.PDF 
+云南城投:云南城投置业股份有限公司关于公司重大资产重组（2022年）的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-17/1218362688.PDF 
 
-三变科技:关于投资设立的并购基金进展公告 http://static.cninfo.com.cn/finalpage/2023-11-16/1218350319.PDF 
+惠博普:关于终止重大资产重组事项相关内幕信息知情人买卖股票情况自查报告的公告 http://static.cninfo.com.cn/finalpage/2023-11-17/1218361438.PDF 
 
