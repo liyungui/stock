@@ -1,34 +1,66 @@
-要约收购 有8条新公告 
+要约收购 有11条新公告 
 
-盛航股份:关于收购江苏安德福能源发展有限公司2%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218466721.PDF 
+湖北能源:关于收购天门天辰能源发展有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218480021.PDF 
 
-中集车辆:（1）根据收购守则规则3.7、香港上市规则第13.09条及证券及期货条例第XIVA部项下内幕消息条文作出公告及（2）恢复买卖 http://static.cninfo.com.cn/finalpage/2023-11-29/1218466483.PDF 
+湖北能源:关于收购洪湖卓阳新能源有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218480017.PDF 
 
-宁波能源:宁波能源关于收购潜江瀚达热电有限公司70%股权暨关联交易的补充公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218466433.PDF 
+湖北能源:关于收购石首源阳新能源有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218480015.PDF 
 
-立新能源:新疆立新能源股份有限公司关于提请公司股东大会同意控股股东免于以要约收购方式收购公司股份的公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218465741.PDF 
+湖北能源:湖北能源集团新能源发展有限公司拟收购股权涉及的石首源阳新能源有限公司股东全部权益价值项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218480010.PDF 
 
-建投能源:关于收购开滦协鑫发电有限公司51%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218465419.PDF 
+东土科技:关于公司参与公开摘牌收购科东软件30%股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218479341.PDF 
 
-步长制药:保定天浩制药有限公司拟资产收购所涉及的四川泸州步长生物制药有限公司在研项目市场价值资产评估报告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218465388.PDF 
+恒基达鑫:关于收购孙公司股权并对其增资的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218479073.PDF 
 
-华建集团:华东建筑集团股份有限公司关于协议收购上海房屋质量检测站有限公司100%股权暨关联交易实施进展情况的公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218465069.PDF 
+优博讯:公司关于收购珠海佳博科技有限公司2022年度业绩承诺实现情况的说明审核报告[致同专字（2023）第441A009241号] http://static.cninfo.com.cn/finalpage/2023-11-30/1218478857.PDF 
 
-新凤鸣:关于终止收购广西桐昆石化有限公司部分股权的公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218464536.PDF 
+吉祥航空:国泰君安证券股份有限公司关于上海吉祥航空股份有限公司收购控股子公司九元航空有限公司少数股东股权暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2023-11-30/1218478632.PDF 
 
-并购重组 有7条新公告 
+吉祥航空:上海吉祥航空股份有限公司拟收购九元航空有限公司股权所涉及其股东全部权益价值资产评估报告及其附件 http://static.cninfo.com.cn/finalpage/2023-11-30/1218478631.PDF 
 
-科创新源:深圳科创新源新材料股份有限公司关于转让产业并购基金出资份额暨退出产业并购基金的公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218467155.PDF 
+吉祥航空:上海吉祥航空股份有限公司关于收购控股子公司九元航空有限公司少数股东股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218478629.PDF 
 
-浙农股份:海通证券股份有限公司关于公司重大资产重组非公开发行股份解除限售的核查意见 http://static.cninfo.com.cn/finalpage/2023-11-29/1218466754.PDF 
+锦江酒店:锦江酒店关于收购锦江国际酒店管理有限公司100%股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477285.PDF 
 
-浙农股份:关于重大资产重组限售股份解除限售上市流通的提示性公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218466753.PDF 
+并购重组 有13条新公告 
 
-林洋能源:江苏林洋能源股份有限公司关于拟签订项目并购框架协议涉及部分募投项目转让的公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218466281.PDF 
+辽宁能源:辽宁能源终止重大资产重组的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218480327.PDF 
 
-林洋能源:广发证券股份有限公司关于江苏林洋能源股份有限公司拟签订项目并购框架协议涉及部分募投项目转让的专项核查意见 http://static.cninfo.com.cn/finalpage/2023-11-29/1218466280.PDF 
+辽宁能源:辽宁能源关于召开终止重大资产重组投资者说明会的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218480326.PDF 
 
-仁东控股:关于重大资产购买重组事项的实施进展公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218465668.PDF 
+朝阳科技:关于向银行申请并购借款的进展暨更换借款银行的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218479743.PDF 
 
-东莞控股:关于延期回复深圳证券交易所重组问询函的公告 http://static.cninfo.com.cn/finalpage/2023-11-29/1218465098.PDF 
+株冶集团:株冶集团董事会关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477820.PDF 
+
+株冶集团:株冶集团关于本次重组采取的保密措施及保密制度的说明 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477818.PDF 
+
+株冶集团:株冶集团董事会关于本次交易不构成《上市公司重大资产重组管理办法》第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477816.PDF 
+
+株冶集团:株冶集团董事会关于本次交易符合《上市公司重大资产重组管理办法》第十一条的说明 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477813.PDF 
+
+株冶集团:株冶集团董事会关于本次重组履行法定程序的完备性、合规性及提交的法律文件的有效性的说明 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477807.PDF 
+
+株冶集团:中信建投证券股份有限公司关于本次交易不构成《上市公司重大资产重组管理办法》第十三条规定的重组上市情形的核查意见 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477806.PDF 
+
+株冶集团:株冶集团关于披露重组报告书暨一般风险提示性公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477805.PDF 
+
+株冶集团:株冶集团董事会关于公司股票价格波动未达到《上海证券交易所上市公司自律监管指引第6号——重大资产重组》相关标准的说明 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477803.PDF 
+
+株冶集团:株冶集团董事会关于本次交易相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条规定情形的说明 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477801.PDF 
+
+西藏药业:西藏诺迪康药业股份有限公司关于重大资产重组实施进展的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218476522.PDF 
+
+定向增发 有1条新公告 
+
+北方导航:北方导航关于子公司中兵航联科技股份有限公司定向发行股份取得全国股转公司同意函的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477021.PDF 
+
+天味食品 有1条新公告 
+
+天味食品:关于使用部分闲置募集资金进行现金管理到期赎回的公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477839.PDF 
+
+德赛电池 有2条新公告 
+
+德赛电池:深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市代销方式配股首次提示性公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477921.PDF 
+
+德赛电池:深圳市德赛电池科技股份有限公司停牌提示性公告 http://static.cninfo.com.cn/finalpage/2023-11-30/1218477920.PDF 
 
