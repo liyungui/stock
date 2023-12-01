@@ -1,44 +1,30 @@
-要约收购 有5条新公告 
+要约收购 有7条新公告 
 
-新 希 望:关于收购徐闻新好农牧有限公司少数股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218485741.PDF 
+招商公路:关于收购工银投资所持招商中铁2%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218497871.PDF 
 
-新 希 望:关于收购山东新希望六和集团有限公司少数股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218485740.PDF 
+三未信安:关于通过公开摘牌方式参与竞拍收购控股子公司部分股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218496967.PDF 
 
-大北农:关于收购湖南九鼎科技（集团）有限公司部分股权诉讼的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218485438.PDF 
+宁科生物:宁科生物关于延期回复上海证券交易所《关于对宁夏中科生物科技股份有限公司收购股权事项进展情况的问询函》的公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218496930.PDF 
 
-小崧股份:关于收购佛山普希100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218485310.PDF 
+洪城环境:江西洪城环境股份有限公司关于鼎元生态协议收购环保能源飞灰填埋资产暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218495122.PDF 
 
-佛山照明:关于广东省广晟控股集团有限公司认购佛山电器照明股份有限公司向特定对象发行股票免于发出要约事宜之法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-01/1218483705.PDF 
+桐昆股份:桐昆集团股份有限公司关于收购广西桐昆石化有限公司剩余35%股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218493942.PDF 
 
-并购重组 有6条新公告 
+博通股份:深圳市鹏信资产评估土地房地产估价有限公司关于上海证券交易所就博通股份发行股份及支付现金方式收购陕西驭腾能源环保科技股份有限公司《审核问询函》之回复 http://static.cninfo.com.cn/finalpage/2023-12-02/1218493915.PDF 
 
-大唐电信:大唐电信科技股份有限公司关于公司重大资产重组实施进展及诉讼进展的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218485439.PDF 
+鲁阳节能:关于收购奇耐联合纤维（上海）有限公司100%股权暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218493837.PDF 
 
-*ST东洋:关于与绿叶投资集团有限公司签订《债务重组与化解协议》暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218484913.PDF 
+并购重组 有4条新公告 
 
-*ST东洋:关于与中国信达资产管理股份有限公司山东省分公司签订《债务重组协议》暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218484911.PDF 
+天津普林:关于以控股子公司股权质押向银行申请并购贷款的公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218497450.PDF 
 
-福达合金:关于召开终止重大资产重组投资者说明会的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218483653.PDF 
+锦龙股份:关于筹划重大资产重组事项的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218495084.PDF 
 
-福达合金:关于终止重大资产重组的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218483652.PDF 
+西部黄金:西部黄金股份有限公司关于修改重大资产重组房产剥离承诺事项的公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218494289.PDF 
 
-中国交建:中国交建关于完成分拆所属子公司重组上市的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218482710.PDF 
+西部黄金:国泰君安关于西部黄金修改重大资产重组房产剥离承诺事项的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-02/1218494283.PDF 
 
-东方日升 有1条新公告 
+天味食品 有1条新公告 
 
-东方日升:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218485491.PDF 
-
-爱尔眼科 有1条新公告 
-
-爱尔眼科:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218485482.PDF 
-
-科顺股份 有1条新公告 
-
-科顺股份:关于回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218482404.PDF 
-
-德赛电池 有2条新公告 
-
-德赛电池:关于持股5%以上股东部分股份质押的公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218482539.PDF 
-
-德赛电池:深圳市德赛电池科技股份有限公司向原股东配售股份并在主板上市配股提示性公告 http://static.cninfo.com.cn/finalpage/2023-12-01/1218482537.PDF 
+天味食品:关于以集中竞价交易方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-02/1218495787.PDF 
 
