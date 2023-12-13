@@ -1,52 +1,70 @@
-要约收购 有11条新公告 
+要约收购 有19条新公告 
 
-首华燃气:关于签署《收购意向书》的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218595894.PDF 
+泰嘉股份:平安证券股份有限公司关于湖南泰嘉新材料科技股份有限公司收购控股子公司东莞市铂泰电子有限公司少数股东股权暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-14/1218610301.PDF 
 
-亚泰集团:吉林亚泰（集团）股份有限公司关于收购鸡西泰鑫煤业有限公司股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218594399.PDF 
+泰嘉股份:关于收购控股子公司东莞市铂泰电子有限公司少数股东股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218610300.PDF 
 
-亚泰集团:亚泰能源集团有限公司拟股权收购涉及鸡西泰鑫煤业有限公司股东全部权益价值项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218594390.PDF 
+泰嘉股份:泰嘉股份拟收购东莞铂泰部分股权涉及东莞铂泰股东全部权益价值项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218610298.PDF 
 
-江苏国泰:江苏国泰国际集团股份有限公司收购报告书摘要 http://static.cninfo.com.cn/finalpage/2023-12-13/1218594065.PDF 
+湖南发展:关于收购控股股东所持蟒电公司46%股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609832.PDF 
 
-瑞泰新材:江苏瑞泰新能源材料股份有限公司收购报告书摘要 http://static.cninfo.com.cn/finalpage/2023-12-13/1218593054.PDF 
+湖南发展:湖南发展集团股份有限公司拟收购股权所涉及的湖南芷江蟒塘溪水利水电开发有限责任公司股东全部权益项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609830.PDF 
 
-中曼石油:中曼石油关于收购参股公司股权并获得坚戈区块控制权的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218592399.PDF 
+华创云信:华创云信独立董事关于收购思特奇暨关联交易等事项的独立意见 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609648.PDF 
 
-华宏科技:浙江中杭新材料科技有限公司拟收购股权涉及的山东烁成新材料科技有限公司股东全部权益价值项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591812.PDF 
+华创云信:华创云信独立董事关于收购思特奇暨关联交易等事项的事前认可意见 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609646.PDF 
 
-华宏科技:关于收购山东烁成新材料科技有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591811.PDF 
+亚泰集团:吉林亚泰（集团）股份有限公司关于收购股权事项收到上海证券交易所问询函的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609569.PDF 
 
-赛意信息:关于全资子公司收购思诺博100%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218590324.PDF 
+上工申贝:上工申贝拟收购上海飞尔汽车零部件股份有限公司股权所涉及的上海飞尔汽车零部件股份有限公司股东全部权益价值评估报告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218608386.PDF 
 
-海泰发展:天津海泰科技发展股份有限公司关于收购天津海泰资本投资管理有限公司持有基金份额暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218590008.PDF 
+文科园林:关于控股子公司收购佛山市晟世晖能光伏发电科技有限公司及中山市晟迪新能源科技有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218608331.PDF 
 
-张  裕Ａ:关于收购澳大利亚歌浓酒庄有限公司部分股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218589971.PDF 
+岭南控股:广东南国德赛律师事务所关于《广州岭南集团控股股份有限公司收购报告书》之法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-14/1218607149.PDF 
 
-并购重组 有1条新公告 
+岭南控股:广州岭南集团控股股份有限公司收购报告书 http://static.cninfo.com.cn/finalpage/2023-12-14/1218607148.PDF 
 
-罗博特科:关于回复深圳证券交易所重组审核问询函的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218594665.PDF 
+岭南控股:广东南国德赛律师事务所关于广州岭南商旅投资集团有限公司通过无偿划转取得广州岭南集团控股股份有限公司部分股份免于要约之法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-14/1218607147.PDF 
 
-天味食品 有11条新公告 
+新华文轩:新华文轩关于收购控股子公司股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218607074.PDF 
 
-天味食品:关于出售资产的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591967.PDF 
+建投能源:关于收购开滦协鑫发电有限公司51%股权事项完成国有资产评估备案的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218606305.PDF 
 
-天味食品:第五届监事会第二十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591966.PDF 
+力生制药:关于收购江西青春康源制药有限公司可能被动形成财务资助及对外担保的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218605238.PDF 
 
-天味食品:关于召开2023年第三次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591516.PDF 
+力生制药:关于收购江西青春康源制药有限公司65%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218605237.PDF 
 
-天味食品:独立董事关于公司第五届董事会第二十五次会议相关事项的独立意见 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591515.PDF 
+力生制药:北京金诚同达律师事务所关于力生制药收购康源制药65%股权之法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-14/1218604218.PDF 
 
-天味食品:《公司章程》(2023年12月） http://static.cninfo.com.cn/finalpage/2023-12-13/1218591514.PDF 
+力生制药:天津力生制药股份有限公司拟收购股权所涉及的江西青春康源制药有限公司股东全部权益项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218604217.PDF 
 
-天味食品:第五届董事会第二十五次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591513.PDF 
+并购重组 有12条新公告 
 
-天味食品:国浩律师（成都）事务所关于四川天味食品集团股份有限公司2022年限制性股票激励计划回购注销部分限制性股票之法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591512.PDF 
+华人健康:华泰联合证券有限责任公司关于深圳证券交易所《关于对安徽华人健康医药股份有限公司的重组问询函》回复之核查意见 http://static.cninfo.com.cn/finalpage/2023-12-14/1218610254.PDF 
 
-天味食品:关于回购注销部分限制性股票减资暨通知债权人的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591511.PDF 
+华人健康:公证天业会计师事务所（特殊普通合伙）关于深圳证券交易所《关于对安徽华人健康医药股份有限公司的重组问询函》回复 http://static.cninfo.com.cn/finalpage/2023-12-14/1218610246.PDF 
 
-天味食品:关于回购注销部分限制性股票的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591510.PDF 
+华人健康:江苏华信资产评估有限公司关于《关于对安徽华人健康医药股份有限公司的重组问询函》之意见回复 http://static.cninfo.com.cn/finalpage/2023-12-14/1218610244.PDF 
 
-天味食品:关于调整第五届董事会审计委员会成员的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591509.PDF 
+华人健康:安徽华人健康医药股份有限公司关于《关于对安徽华人健康医药股份有限公司的重组问询函》回复的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218610242.PDF 
 
-天味食品:关于修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2023-12-13/1218591508.PDF 
+昊华科技:关于《关于昊华化工科技集团股份有限公司发行股份购买资产并募集配套资金申请的审核问询函》（上证上审并购重组【2023】57号）的回复之专项核查意见 http://static.cninfo.com.cn/finalpage/2023-12-14/1218610184.PDF 
+
+华西能源:华宝证券股份有限公司关于华西能源本次重组摊薄即期回报情况及填补措施之专项核查意见 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609505.PDF 
+
+华西能源:华宝证券股份有限公司关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609504.PDF 
+
+华西能源:上市公司并购重组财务顾问专业意见附表2-重大资产重组 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609503.PDF 
+
+华西能源:华宝证券关于本次相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条不得参与上市公司重大资产重组情形的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609498.PDF 
+
+华西能源:华宝证券股份有限公司关于本次交易不构成《上市公司重大资产重组管理办法》第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2023-12-14/1218609494.PDF 
+
+国旅联合:国旅文化投资集团股份有限公司关于终止重大资产重组投资者说明会召开情况的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218607053.PDF 
+
+华嵘控股: 华嵘控股关于重大资产重组事项的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218604021.PDF 
+
+新城控股 有1条新公告 
+
+新城控股:新城控股关于公司股东部分股权质押的公告 http://static.cninfo.com.cn/finalpage/2023-12-14/1218605342.PDF 
 
