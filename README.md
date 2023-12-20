@@ -1,74 +1,86 @@
-要约收购 有29条新公告 
+要约收购 有6条新公告 
 
-中山公用:中山公用水务投资有限公司用于资产收购涉及的中山火炬开发区自来水有限公司的资产负债组合市场价值评估项目资产评估报告（广东正恒资评字［2023］第1201号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667450.PDF 
+万朗磁塑:上海市锦天城律师事务所关于时乾中免于发出要约事项的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-21/1218675297.PDF 
 
-中山公用:中山公用水务投资有限公司拟收购涉及中山翠亨新区管理委员会一批管网设施资产价值评估报告（广东正恒资评字［2023］第1104号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667448.PDF 
+万朗磁塑:万朗磁塑关于提请股东大会批准认购对象免于发出要约的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218675295.PDF 
 
-中山公用:中山公用水务投资有限公司拟收购涉及中山市大涌自来水有限公司经审计后的一批存货、固定资产、无形资产价值评估报告（广东正恒资评字[2023]第0901号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667447.PDF 
+奥马电器:关于收购TCL家用电器（合肥）有限公司100%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218675007.PDF 
 
-中山公用:中山市南头镇人民政府投资形成并由中山市南头供水有限公司管理和使用的管网之资产收购评估项目资产评估报告（中成评字（2023）第111005号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667446.PDF 
+亚泰集团:吉林亚泰（集团）股份有限公司关于终止收购鸡西泰鑫煤业有限公司股权暨回复上海证券交易所相关问询函的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218674245.PDF 
 
-中山公用:中山公用水务投资有限公司拟收购涉及中山火炬高技术产业开发区管理委员会一批管网设施资产价值评估报告（广东正恒资评字［2023］第1202号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667445.PDF 
+利通电子:利通电子关于收购控股子公司部分股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673328.PDF 
 
-中山公用:中山公用水务投资有限公司拟收购涉及中山市人民政府南朗街道办事处一批管网设施资产价值评估报告（广东正恒资评字［2023］第1105号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667443.PDF 
+海立股份:海立股份关于收购马瑞利（香港）控股有限公司60%股权交割进展的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218672775.PDF 
 
-中山公用:中山公用水务投资有限公司用于资产收购涉及的中山市民众水务有限公司的资产负债组合市场价值评估项目资产评估报告（中成评字（2023）第 211005号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667442.PDF 
+并购重组 有9条新公告 
 
-中山公用:中山公用水务投资有限公司拟收购涉及中山市南朗供水有限公司经审计后的一批存货、固定资产、无形资产价值评估报告（广东正恒资评字［2023］第1102号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667441.PDF 
+国旅联合:国浩律师（上海）事务所关于国旅文化投资集团股份有限公司终止重大资产重组事项股票交易自查期间相关主体买卖股票情况之专项核查意见 http://static.cninfo.com.cn/finalpage/2023-12-21/1218675438.PDF 
 
-中山公用:中山市黄圃镇自来水公司资产收购涉及的资产、负债评估项目资产评估报告（中信评报字［2023］第1026号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667440.PDF 
+国旅联合:国旅文化投资集团股份有限公司关于终止重大资产重组事项相关内幕信息知情人买卖股票情况的自查报告的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218675437.PDF 
 
-中山公用:中山公用水务投资有限公司用于资产收购涉及的中山市南头供水有限公司的资产负债组合市场价值评估项目资产评估报告（中成评字（2023）第210002号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667439.PDF 
+国旅联合:华泰联合证券有限责任公司关于国旅文化投资集团股份有限公司终止重大资产重组事项相关内幕信息知情人买卖股票情况之独立财务顾问核查意见 http://static.cninfo.com.cn/finalpage/2023-12-21/1218675436.PDF 
 
-中山公用:中山公用水务投资有限公司拟收购涉及中山翠亨新区水务有限公司经审计后的一批固定资产无形资产价值评估报告（广东正恒资评字［2023］第1103号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667437.PDF 
+中文传媒:中文传媒关于本次发行股份及支付现金购买资产预计不构成重大资产重组且不构成重组上市的说明 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673984.PDF 
 
-中山公用:中山市人民政府民众街道办事处投资形成并由中山市民众水务有限公司管理和使用的管网之资产收购评估项目资产评估报告（中成评字（2023）第111011号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667436.PDF 
+中文传媒:中文传媒关于公司本次交易符合《上市公司重大资产重组管理办法》第十一条和第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673982.PDF 
 
-中山公用:中山公用水务投资有限公司用于资产收购涉及的中山市西区沙朗供水有限公司的资产负债组合市场价值项目资产评估报告（中成评字（2023）第212003号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667431.PDF 
+中文传媒:中文传媒关于本次交易中相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条规定情形的说明 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673979.PDF 
 
-中山公用:中山公用水务投资有限公司拟收购涉及中山市大涌镇人民政府一批管网设施资产价值评估报告（广东正恒资评字[2023]第0902号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667430.PDF 
+中文传媒:中文传媒关于本次交易中相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条规定情形的说明 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673971.PDF 
 
-中山公用:中山市人民政府西区街道办事处投资形成并由中山市西区沙朗供水有限公司管理和使用的管网之资产收购评估项目资产评估报告（中成评宇（2023）第112004号） http://static.cninfo.com.cn/finalpage/2023-12-20/1218667429.PDF 
+中文传媒:中文传媒关于公司本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673969.PDF 
 
-中山公用:关于中山市镇街供水资产收购项目的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218667423.PDF 
+中文传媒:中文传媒关于公司本次重组信息公布前股票价格波动情况的说明 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673966.PDF 
 
-瑞玛精密:关于以现金方式收购Pneuride Limited 19.99%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218667394.PDF 
+天味食品 有1条新公告 
 
-ST金时:关于以股权收购及增资方式购买资产的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218667032.PDF 
+天味食品:董事集中竞价减持股份结果公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673575.PDF 
 
-弘信电子:关于收购控股子公司少数股东股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666780.PDF 
+兴齐眼药 有23条新公告 
 
-水发燃气:水发派思燃气股份有限公司拟收购股权所涉及的曹县水发启航燃气有限公司股东全部权益项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666695.PDF 
+兴齐眼药:独立董事提名人声明与承诺（戴晓滨） http://static.cninfo.com.cn/finalpage/2023-12-21/1218673511.PDF 
 
-水发燃气:关于收购曹县水发启航燃气有限公司51%股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666694.PDF 
+兴齐眼药:董事会议事规则 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673510.PDF 
 
-东方材料:新东方新材料股份有限公司关于终止收购TD TECH 51%股权暨交易双方达成和解的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666342.PDF 
+兴齐眼药:关于变更公司注册资本并修订《公司章程》的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673509.PDF 
 
-驰宏锌锗:驰宏锌锗关于收购青海鸿鑫矿业有限公司100%股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666162.PDF 
+兴齐眼药:独立董事候选人声明与承诺（孔晓燕） http://static.cninfo.com.cn/finalpage/2023-12-21/1218673508.PDF 
 
-驰宏锌锗:云南上首律师事务所关于云南驰宏锌锗股份有限公司收购青海鸿鑫矿业有限公司100%股权暨关联交易的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666151.PDF 
+兴齐眼药:独立董事候选人声明与承诺（戴晓滨） http://static.cninfo.com.cn/finalpage/2023-12-21/1218673507.PDF 
 
-南钢股份:南京钢铁股份有限公司关于湖北新冶钢有限公司要约收购公司股份的第一次提示性公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666148.PDF 
+兴齐眼药:独立董事工作制度 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673506.PDF 
 
-邵阳液压:关于筹划重大资产重组暨签订股份收购意向书进展的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666115.PDF 
+兴齐眼药:独立董事提名人声明与承诺（孔晓燕） http://static.cninfo.com.cn/finalpage/2023-12-21/1218673505.PDF 
 
-美年健康:关于收购云南慈铭健康服务有限公司等十三家公司部分股权暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218665373.PDF 
+兴齐眼药:董事会战略委员会工作制度 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673504.PDF 
 
-立方制药:关于收购合肥诺瑞特制药有限公司部分股权进展暨完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218665290.PDF 
+兴齐眼药:监事会议事规则 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673503.PDF 
 
-巨星科技:关于收购TESA Group资产的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218664666.PDF 
+兴齐眼药:董事会薪酬与考核委员会工作制度 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673502.PDF 
 
-并购重组 有4条新公告 
+兴齐眼药:关于召开2024年第一次临时股东大会的通知 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673501.PDF 
 
-邵阳液压:关于筹划重大资产重组暨签订股份收购意向书进展的公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218666115.PDF 
+兴齐眼药:第四届董事会第二十四次会议决议公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673500.PDF 
 
-ST工智:关于重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218665476.PDF 
+兴齐眼药:董事会审计委员会工作制度 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673499.PDF 
 
-东莞控股:北京德和衡律师事务所关于东莞发展控股股份有限公司重大资产重组相关内幕信息知情人买卖股票情况的自查报告的专项核查意见 http://static.cninfo.com.cn/finalpage/2023-12-20/1218665289.PDF 
+兴齐眼药:独立董事候选人声明与承诺（徐先梅） http://static.cninfo.com.cn/finalpage/2023-12-21/1218673498.PDF 
 
-东莞控股:东莞发展控股股份有限公司关于重大资产重组相关内幕信息知情人买卖股票情况的自查报告 http://static.cninfo.com.cn/finalpage/2023-12-20/1218665288.PDF 
+兴齐眼药:关于董事会换届选举的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673497.PDF 
 
-金域医学 有1条新公告 
+兴齐眼药:股东大会议事规则 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673496.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于以集中竞价交易方式回购股份的回购报告书 http://static.cninfo.com.cn/finalpage/2023-12-20/1218665435.PDF 
+兴齐眼药:关于选举第五届监事会职工代表监事的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673495.PDF 
+
+兴齐眼药:沈阳兴齐眼药股份有限公司章程 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673494.PDF 
+
+兴齐眼药:关于监事会换届选举的公告 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673493.PDF 
+
+兴齐眼药:第四届董事会提名委员会关于独立董事候选人审查意见 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673492.PDF 
+
+兴齐眼药:独立董事提名人声明与承诺（徐先梅） http://static.cninfo.com.cn/finalpage/2023-12-21/1218673491.PDF 
+
+兴齐眼药:第四届监事会第十九次会议决议 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673490.PDF 
+
+兴齐眼药:董事会提名委员会工作制度 http://static.cninfo.com.cn/finalpage/2023-12-21/1218673489.PDF 
 
