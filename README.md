@@ -1,42 +1,62 @@
-要约收购 有9条新公告 
+要约收购 有16条新公告 
 
-光明地产:光明地产关于公司所属国有土地使用权被收购储备的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218719126.PDF 
+东航物流:东方航空物流股份有限公司收购报告书摘要 http://static.cninfo.com.cn/finalpage/2023-12-27/1218734431.PDF 
 
-佛慈制药:关于收购广东佛慈普泽医药有限公司60%股权暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218718880.PDF 
+天富能源:新疆天富能源股份有限公司收购报告书 http://static.cninfo.com.cn/finalpage/2023-12-27/1218734244.PDF 
 
-朗进科技:江苏世纪同仁律师事务所关于青岛朗进集团有限公司免于发出要约事宜的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-26/1218718572.PDF 
+天富能源:恒泰长财证券有限责任公司关于新疆天富能源股份有限公司收购报告书之财务顾问报告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218734243.PDF 
 
-朗进科技:山东朗进科技股份有限公司关于提请股东大会批准公司控股股东免于发出股份收购要约的公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218718568.PDF 
+天富能源:上海市锦天城律师事务所关于新疆天富能源股份有限公司收购报告书的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-27/1218734242.PDF 
 
-朗进科技:山东朗进科技股份有限公司收购报告书摘要 http://static.cninfo.com.cn/finalpage/2023-12-26/1218718549.PDF 
+天富能源:新疆天富能源股份有限公司收购报告书摘要（修订版） http://static.cninfo.com.cn/finalpage/2023-12-27/1218734240.PDF 
 
-常润股份:常熟通润汽车零部件股份有限公司关于现金收购普克科技（苏州）股份有限公司 52%股份的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218717180.PDF 
+合肥城建:关于拟收购金太阳部分股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218733878.PDF 
 
-华达科技:关于拟现金收购控股子公司10.20%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218716546.PDF 
+浙江震元:关于控股子公司震元连锁收购全资子公司同源健康管理100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732921.PDF 
 
-驰宏锌锗:驰宏锌锗关于收购青海鸿鑫矿业有限公司100%股权完成评估备案的公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218716261.PDF 
+望变电气:关于签订股份意向收购协议的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732641.PDF 
 
-许继电气:关于收购哈尔滨电工仪表研究所有限公司100%股权的进展暨工商变更登记完成的公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218715943.PDF 
+节能风电:中节能风力发电股份有限公司独立董事关于收购张北二台风力发电有限公司60%股权暨关联交易的独立意见 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732609.PDF 
 
-混合所有制改革 有1条新公告 
+节能风电:中信证券股份有限公司关于中节能风力发电股份有限公司收购张北二台风力发电有限公司60%股权暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732606.PDF 
 
-五洲交通:五洲交通关于收到《广西壮族自治区发展和改革委员会关于G80 广昆高速公路南宁至百色段改扩建工程（坛洛至百色段）项目核准的批复》的公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218717573.PDF 
+健之佳:关于全资子公司收购重庆红瑞乐邦仁佳大药房连锁有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732114.PDF 
 
-并购重组 有8条新公告 
+兴瑞科技:关于收购慈溪骏瑞房屋租赁有限公司100%股权暨关联交易完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732029.PDF 
 
-中钨高新:关于筹划重大资产重组事项的停牌公告20231225 http://static.cninfo.com.cn/finalpage/2023-12-26/1218719652.PDF 
+穗恒运Ａ:北京市康达律师事务所关于广州恒运企业集团股份有限公司投资者权益变动及向特定对象发行股票免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-27/1218731689.PDF 
 
-中直股份:中航直升机股份有限公司关于公司发行股份购买资产事项获得上海证券交易所并购重组审核委员会审核通过的公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218719088.PDF 
+盛航股份:关于收购江苏安德福能源发展有限公司2%股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218731495.PDF 
 
-加加食品:关于并购基金对外投资的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218717383.PDF 
+淮河能源:淮河能源（集团）股份有限公司关于收购资产暨关联交易完成交割的公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218731399.PDF 
 
-华达科技:关于本次交易是否构成重大资产重组、关联交易及重组上市的说明 http://static.cninfo.com.cn/finalpage/2023-12-26/1218716553.PDF 
+佛慈制药:关于收购广东佛慈普泽医药有限公司60%股权完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218730742.PDF 
 
-华达科技:关于本次交易符合《上市公司重大资产重组管理办法》第十一条和第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-26/1218716552.PDF 
+并购重组 有13条新公告 
 
-华达科技:关于筹划重大资产重组停牌前一个交易日前十大股东和前十大流通股股东持股情况的公告 http://static.cninfo.com.cn/finalpage/2023-12-26/1218716548.PDF 
+众泰汽车:公司关于2017年重大资产重组限售股份上市流通的提示性公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218734267.PDF 
 
-华达科技:关于本次交易相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条规定情形的说明 http://static.cninfo.com.cn/finalpage/2023-12-26/1218716542.PDF 
+众泰汽车:华泰联合证券有限责任公司关于公司2017年重大资产重组限售股份上市流通的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-27/1218734266.PDF 
 
-华达科技:华达汽车科技股份有限公司董事会关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-26/1218716539.PDF 
+华亚智能:关于回复深圳证券交易所并购重组问询函的提示性公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218734193.PDF 
+
+星星科技:关于解除对外投资事项进行债务重组的进展暨债务重组终止的公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218734149.PDF 
+
+一拖股份:一拖股份关于本次重大资产重组的一般风险提示公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732625.PDF 
+
+一拖股份:一拖股份董事会关于本次交易符合《上市公司重大资产重组管理办法》第十一条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732619.PDF 
+
+一拖股份:一拖股份董事会关于本次重组不适用《上市公司吸收合并财务顾问业务指引（试行）》的说明 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732617.PDF 
+
+一拖股份:一拖股份董事会关于本次交易相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条不得参与任何上市公司重大资产重组情形的说明 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732615.PDF 
+
+一拖股份:一拖股份董事会关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732614.PDF 
+
+一拖股份:一拖股份董事会关于本次交易不构成《上市公司重大资产重组管理办法》第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732613.PDF 
+
+一拖股份:一拖股份董事会关于公司股票价格波动未达到《上海证券交易所上市公司自律监管指引第6号——重大资产重组》相关标准的说明 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732612.PDF 
+
+中设股份:江苏中设集团股份有限公司关于筹划重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218732417.PDF 
+
+亚信安全:关于向银行申请并购贷款的公告 http://static.cninfo.com.cn/finalpage/2023-12-27/1218730921.PDF 
 
