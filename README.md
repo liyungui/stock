@@ -1,84 +1,102 @@
-要约收购 有23条新公告 
+要约收购 有26条新公告 
 
-亨通光电:亨通光电关于收购PT Voksel Electric Tbk公司部分股份并取得控制权的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747732.PDF 
+陕西黑猫:新疆黑猫煤业有限公司拟收购新疆神新阳霞矿业有限责任公司股权涉及的新疆神新阳霞矿业有限责任公司股东全部权益价值资产评估报告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751423.PDF 
 
-广西广电:广西广电关于提请股东大会审议同意特定对象免于发出收购要约的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747302.PDF 
+陕西黑猫:关于收购关联方新疆神新阳霞矿业有限责任公司的公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751417.PDF 
 
-莲花健康:莲花健康关于签订收购意向书的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747244.PDF 
+中国铁物:中国银河证券股份有限公司关于中国铁路物资股份有限公司收购报告书之财务顾问报告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751348.PDF 
 
-一心堂:关于全资子公司四川一心堂医药连锁有限公司收购自贡市永康大药房16家门店资产及其存货的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746843.PDF 
+中国铁物:北京市尚公律师事务所关于中国物流集团有限公司免于发出要约事宜之法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751347.PDF 
 
-一心堂:关于全资子公司贵州鸿翔一心堂医药连锁有限公司收购贵州贵康堂12家门店资产及其存货的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746842.PDF 
+中国铁物:中国铁路物资股份有限公司收购报告书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751346.PDF 
 
-一心堂:关于全资子公司重庆鸿翔一心堂药业有限公司收购重庆通天药业有限公司24家门店资产及其存货的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746841.PDF 
+中国铁物:北京市尚公律师事务所关于《中国铁路物资股份有限公司收购报告书》之法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751345.PDF 
 
-一心堂:关于全资子公司海南鸿翔一心堂医药连锁有限公司收购海南源安隆药品超市连锁有限公司71家门店资产及其存货的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746840.PDF 
+南钢股份:国泰君安证券股份有限公司关于湖北新冶钢有限公司要约收购南京钢铁股份有限公司之独立财务顾问报告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751100.PDF 
 
-一心堂:关于全资子公司贵州鸿翔一心堂医药连锁有限公司收购贵阳黔品国医堂14家门店资产及其存货的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746839.PDF 
+南钢股份:南京钢铁股份有限公司董事会关于湖北新冶钢有限公司要约收购事宜致全体股东的报告书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751098.PDF 
 
-一心堂:关于全资子公司四川一心堂医药连锁有限公司收购简阳市惠康大药房15家门店资产及其存货的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746838.PDF 
+南钢股份:南京钢铁股份有限公司关于湖北新冶钢有限公司要约收购公司股份的第二次提示性公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218751094.PDF 
 
-一心堂:关于全资子公司山西鸿翔一心堂药业有限公司收购平遥弘康等合计29家门店资产及其存货的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746837.PDF 
+航民股份:航民股份有限公司拟收购股权涉及的深圳市尚金缘珠宝实业有限公司股东全部权益价值评估项目资产评估报告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218750892.PDF 
 
-一心堂:关于全资子公司天津鸿翔一心堂医药连锁有限公司收购天津福源医药连锁有限公司17家门店资产及其存货的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746836.PDF 
+中山公用:关于中山市镇街供水资产收购项目的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218750712.PDF 
 
-一心堂:关于公司收购宜良宜骏药业有限公司10家门店资产及其存货的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746834.PDF 
+三友化工:北京市君合律师事务所关于《唐山三友化工股份有限公司收购报告书》的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749807.PDF 
 
-一心堂:关于全资子公司重庆鸿翔一心堂药业有限公司收购合川红太阳40家门店资产及其存货的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746833.PDF 
+三友化工:北京市君合律师事务所关于唐山国控集团有限公司免于发出要约事项的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749806.PDF 
 
-索菲亚:广东连越律师事务所关于认购索菲亚家居股份有限公司向特定对象发行股票免于发出要约事宜的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746815.PDF 
+三友化工:唐山三友化工股份有限公司收购报告书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749805.PDF 
 
-江南化工:关于全资子公司签署资产收购框架协议暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746683.PDF 
+三木集团:关于收购股权的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749611.PDF 
 
-江南化工:关于收购朝阳红山化工有限责任公司70%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746681.PDF 
+四川金顶:四川金顶收购报告书（2023年2月）（修订） http://static.cninfo.com.cn/finalpage/2023-12-29/1218749479.PDF 
 
-江南化工:关于控股孙公司新疆江阳工程爆破拆迁建设有限公司收购新疆江阳民用炸药混制工程有限公司100%股权并增资扩股的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746680.PDF 
+四川金顶:上海锦天城（郑州）律所关于洛阳均盈免于发出要约收购（2023年2月）的补充法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749477.PDF 
 
-粤 水 电:关于全资子公司收购荆门一汶新能源有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746244.PDF 
+四川金顶:中原证券关于四川金顶收购报告书之财务顾问报告（2023年1月）（修订） http://static.cninfo.com.cn/finalpage/2023-12-29/1218749476.PDF 
 
-金风科技:关于全资子公司收购风电项目的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746163.PDF 
+四川金顶:四川金顶（集团）股份有限公司关于《收购报告书》的更正公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749474.PDF 
 
-豪迈科技:北京德和衡律师事务所关于山东豪迈机械科技股份有限公司控股股东、实际控制人张恭运免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-28/1218744838.PDF 
+四川金顶:上海锦天城（郑州）律所关于洛阳均盈免于发出要约收购（2023年1月）的补充法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749473.PDF 
 
-三友化工:唐山三友化工股份有限公司收购报告书摘要 http://static.cninfo.com.cn/finalpage/2023-12-28/1218744652.PDF 
+四川金顶:上海锦天城（郑州）律所关于四川金顶收购报告书（2023年1月）之补充法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749472.PDF 
 
-广电运通:关于收购北京中数智汇科技股份有限公司股权进展暨完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218744482.PDF 
+四川金顶:四川金顶收购报告书（2023年1月）（修订） http://static.cninfo.com.cn/finalpage/2023-12-29/1218749471.PDF 
 
-金徽股份:金徽股份关于现金收购股权暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218744001.PDF 
+四川金顶:中原证券关于四川金顶收购报告书之财务顾问报告（2023年2月）（修订） http://static.cninfo.com.cn/finalpage/2023-12-29/1218749470.PDF 
 
-并购重组 有9条新公告 
+四川金顶:上海锦天城（郑州）律所关于四川金顶收购报告书（2023年2月）之补充法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749468.PDF 
 
-罗曼股份:关于筹划重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746754.PDF 
+永泰运:关于收购天津睿博龙智慧供应链股份有限公司60%股权事项完成股权过户及工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748384.PDF 
 
-华西能源:关于延期回复深圳证券交易所并购重组问询函的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218746149.PDF 
+国脉科技:关于政府收购公司土地使用权的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748137.PDF 
 
-迪马股份:迪马股份关于第一大股东债务重组进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218745929.PDF 
+混合所有制改革 有3条新公告 
 
-青岛港:青岛港国际股份有限公司关于重大资产重组进展暨无法在规定时间内发出股东大会通知的专项说明 http://static.cninfo.com.cn/finalpage/2023-12-28/1218745673.PDF 
+中国铝业:中国铝业关于参与中铝科学技术研究院有限公司股权改革的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218750456.PDF 
 
-ST实达:福建实达集团股份有限公司关于重大资产重组暨关联交易事项的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218745453.PDF 
+皖天然气:安徽省天然气开发股份有限公司关于执行《安徽省发展改革委关于降低省内部分天然气短途管道运输价格等有关事项的通知》的公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748811.PDF 
 
-皇庭国际:关于债务重组及重大资产出售的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218745004.PDF 
+安徽合力:安徽合力股份有限公司关于全资子公司合力工业车辆（上海）有限公司实施混合所有制改革并同步开展员工持股计划的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748632.PDF 
 
-奇正藏药:关于参与设立并购基金的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218744376.PDF 
+并购重组 有12条新公告 
 
-智慧农业:关于控股股东债务重组的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218743900.PDF 
+富瀚微:关于披露重组报告书暨一般风险提示性公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218753053.PDF 
 
-株冶集团:株冶集团关于延期回复上海证券交易所重组问询函的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218743394.PDF 
+富瀚微:华泰联合证券有限责任公司关于上海富瀚微电子股份有限公司本次发行股份、可转换公司债券及支付现金购买资产并募集配套资金不构成《上市公司重大资产重组管理办法》第十二条规定的重大资产重组以及第十三条规定的重组上市情形的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-29/1218753051.PDF 
 
-德赛电池 有7条新公告 
+富瀚微:华泰联合证券有限责任公司关于本次重组方案调整不构成重大调整的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-29/1218753030.PDF 
 
-德赛电池:关于公开挂牌转让广东德赛矽镨技术有限公司30%股权形成关联交易的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747197.PDF 
+富瀚微:董事会关于本次交易符合《深圳证券交易所上市公司重大资产重组审核规则》第八条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-29/1218753027.PDF 
 
-德赛电池:第十届监事会第十一次（临时）会议决议公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747196.PDF 
+富瀚微:董事会关于本次交易相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条规定情形的说明 http://static.cninfo.com.cn/finalpage/2023-12-29/1218752988.PDF 
 
-德赛电池:第十届董事会第二十三次（临时）会议决议公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747195.PDF 
+富瀚微:董事会关于本次交易符合《上市公司重大资产重组管理办法》第十一条、第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-29/1218752975.PDF 
 
-德赛电池:大华会计师事务所(特殊普通合伙)关于深圳市德赛电池科技股份有限公司以自筹资金预先投入募集资金投资项目的鉴证报告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747194.PDF 
+富瀚微:董事会关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2023-12-29/1218752974.PDF 
 
-德赛电池:中信证券股份有限公司关于深圳市德赛电池科技股份有限公司公开挂牌转让子公司股权暨关联交易的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747193.PDF 
+富瀚微:关于本次重组方案调整不构成重大调整的公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218752973.PDF 
 
-德赛电池:关于使用募集资金置换预先投入自筹资金的公告 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747192.PDF 
+富瀚微:董事会关于本次交易不构成《上市公司重大资产重组管理办法》 第十二条规定的重大资产重组以及第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2023-12-29/1218752971.PDF 
 
-德赛电池:中信证券股份有限公司关于深圳市德赛电池科技股份有限公司使用募集资金置换预先投入自筹资金的核查意见 http://static.cninfo.com.cn/finalpage/2023-12-28/1218747191.PDF 
+上海凤凰:上海凤凰关于重大资产重组事项的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218749825.PDF 
+
+株冶集团:株冶集团关于重大资产重组事项的进展公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748268.PDF 
+
+西藏药业:西藏诺迪康药业股份有限公司关于重大资产重组实施进展的公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748257.PDF 
+
+天味食品 有3条新公告 
+
+天味食品:2023年第三次临时股东大会决议公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748996.PDF 
+
+天味食品:关于以集中竞价交易方式首次回购公司股份的公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748995.PDF 
+
+天味食品:国浩律师（成都）事务所关于四川天味食品集团股份有限公司2023年第三次临时股东大会之法律意见书 http://static.cninfo.com.cn/finalpage/2023-12-29/1218748994.PDF 
+
+邮储银行 有2条新公告 
+
+邮储银行:中国邮政储蓄银行股份有限公司监事会决议公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218753693.PDF 
+
+邮储银行:中国邮政储蓄银行股份有限公司董事会决议公告 http://static.cninfo.com.cn/finalpage/2023-12-29/1218753692.PDF 
 
