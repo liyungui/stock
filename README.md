@@ -1,38 +1,30 @@
-要约收购 有3条新公告 
+要约收购 有5条新公告 
 
-华菱精工:关于收购控股子公司少数股东股权的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218789511.PDF 
+高鸿股份:关于筹划下属公司收购参股公司部分股权的提示性公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218802647.PDF 
 
-天洋新材:关于公司收购控股子公司德法瑞20.22%股权的的进展暨完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218789502.PDF 
+纬德信息:广东信达律师事务所关于广东纬德信息科技股份有限公司实际控制人免于以要约方式增持股份的专项核查意见 http://static.cninfo.com.cn/finalpage/2024-01-04/1218801459.PDF 
 
-山东高速:山东高速股份有限公司关于收购山东高速信息集团有限公司65%股权暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218789355.PDF 
+臻镭科技:浙江臻镭科技股份有限公司拟收购杭州镓谷科技有限公司拥有的单项资产价值评估项目资产评估报告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218801059.PDF 
 
-并购重组 有7条新公告 
+ST金时:关于以股权收购及增资方式购买资产的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800191.PDF 
 
-*ST天沃:关于苏州天沃科技股份有限公司重大资产重组业绩承诺期届满标的资产减值测试专项审核报告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218792681.PDF 
+江西长运:申万宏源证券承销保荐有限责任公司关于江西长运股份有限公司收购报告书之2023年第4季度持续督导报告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800097.PDF 
 
-汇通能源:关于重大资产重组实施完成的公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218792159.PDF 
+并购重组 有4条新公告 
 
-汇通能源:关于重大资产重组相关承诺事项的公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218792156.PDF 
+株冶集团:株冶集团关于终止重大资产重组的公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218802315.PDF 
 
-华夏幸福:华夏幸福关于公司债务重组相关资产出售事项的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218791587.PDF 
+株冶集团:中信建投证券股份有限公司关于株洲冶炼集团股份有限公司终止重大资产重组事项之独立财务顾问核查意见 http://static.cninfo.com.cn/finalpage/2024-01-04/1218802311.PDF 
 
-ST大集:关于重大资产重组业绩补偿诉讼案的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218791478.PDF 
+株冶集团:株冶集团关于召开终止重大资产重组投资者说明会的公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218802306.PDF 
 
-泽璟制药:泽璟制药关于自愿披露重组人凝血酶获批上市的公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218789762.PDF 
+蠡湖股份:关于公司内部业务重组的公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800341.PDF 
 
-哈森股份:哈森股份关于筹划重大资产重组停牌公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218789707.PDF 
+新城控股 有1条新公告 
 
-定向增发 有2条新公告 
+新城控股:新城控股关于控股股东部分股份质押的公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800102.PDF 
 
-继峰股份:继峰股份定向可转债转股结果暨股份变动公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218791823.PDF 
+德赛电池 有1条新公告 
 
-辽宁成大:辽宁成大股份有限公司2023年度第二期定向债务融资工具发行结果公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218789392.PDF 
-
-天味食品 有1条新公告 
-
-天味食品:关于以集中竞价交易方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218789500.PDF 
-
-金域医学 有1条新公告 
-
-金域医学:广州金域医学检验集团股份有限公司关于以集中竞价交易方式回购公司股份的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-03/1218790294.PDF 
+德赛电池:关于公开挂牌转让广东德赛矽镨技术有限公司30%股权形成关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800196.PDF 
 
