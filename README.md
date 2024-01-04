@@ -1,30 +1,30 @@
-要约收购 有5条新公告 
+要约收购 有4条新公告 
 
-高鸿股份:关于筹划下属公司收购参股公司部分股权的提示性公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218802647.PDF 
+蓝焰控股:山西蓝焰控股股份有限公司关于收购山西煤层气有限责任公司 81%股权暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810214.PDF 
 
-纬德信息:广东信达律师事务所关于广东纬德信息科技股份有限公司实际控制人免于以要约方式增持股份的专项核查意见 http://static.cninfo.com.cn/finalpage/2024-01-04/1218801459.PDF 
+国旅联合:国旅文化投资集团股份有限公司关于现金收购江西省海际购进出口有限公司100%股权进展暨完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218808548.PDF 
 
-臻镭科技:浙江臻镭科技股份有限公司拟收购杭州镓谷科技有限公司拥有的单项资产价值评估项目资产评估报告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218801059.PDF 
+建投能源:关于收购开滦协鑫发电有限公司51%股权事项完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218808270.PDF 
 
-ST金时:关于以股权收购及增资方式购买资产的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800191.PDF 
+金陵药业:金陵药业股份有限公司关于签署《收购意向书》暨关联交易提示性公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218807774.PDF 
 
-江西长运:申万宏源证券承销保荐有限责任公司关于江西长运股份有限公司收购报告书之2023年第4季度持续督导报告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800097.PDF 
+并购重组 有9条新公告 
 
-并购重组 有4条新公告 
+四川九洲:四川九洲电器股份有限公司董事会关于本次交易是否构成重大资产重组、关联交易及重组上市的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810485.PDF 
 
-株冶集团:株冶集团关于终止重大资产重组的公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218802315.PDF 
+四川九洲:四川九洲电器股份有限公司董事会关于本次交易不构成《上市公司重大资产重组管理办法》第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810481.PDF 
 
-株冶集团:中信建投证券股份有限公司关于株洲冶炼集团股份有限公司终止重大资产重组事项之独立财务顾问核查意见 http://static.cninfo.com.cn/finalpage/2024-01-04/1218802311.PDF 
+四川九洲:四川九洲电器股份有限公司董事会关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810479.PDF 
 
-株冶集团:株冶集团关于召开终止重大资产重组投资者说明会的公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218802306.PDF 
+四川九洲:四川九洲电器股份有限公司董事会关于交易相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810476.PDF 
 
-蠡湖股份:关于公司内部业务重组的公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800341.PDF 
+四川九洲:四川九洲电器股份有限公司董事会关于本次交易符合《上市公司重大资产重组管理办法》第十一条和第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810470.PDF 
 
-新城控股 有1条新公告 
+烽火电子:关于重大资产重组涉及军工事项审查获得国防科工局批复的公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810178.PDF 
 
-新城控股:新城控股关于控股股东部分股份质押的公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800102.PDF 
+华西能源:关于延期回复深圳证券交易所并购重组问询函的公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218809067.PDF 
 
-德赛电池 有1条新公告 
+亚玛顿:关于披露重大资产重组预案后的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218808914.PDF 
 
-德赛电池:关于公开挂牌转让广东德赛矽镨技术有限公司30%股权形成关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-04/1218800196.PDF 
+华鼎股份:义乌华鼎锦纶股份有限公司关于涉及重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218808866.PDF 
 
