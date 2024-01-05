@@ -1,30 +1,26 @@
-要约收购 有4条新公告 
+要约收购 有10条新公告 
 
-蓝焰控股:山西蓝焰控股股份有限公司关于收购山西煤层气有限责任公司 81%股权暨关联交易的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810214.PDF 
+溢多利:关于收购控股孙公司少数股权进展暨完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2024-01-06/1218818245.PDF 
 
-国旅联合:国旅文化投资集团股份有限公司关于现金收购江西省海际购进出口有限公司100%股权进展暨完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218808548.PDF 
+广晟有色:广晟有色金属股份有限公司收购报告书 http://static.cninfo.com.cn/finalpage/2024-01-06/1218817929.PDF 
 
-建投能源:关于收购开滦协鑫发电有限公司51%股权事项完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218808270.PDF 
+广晟有色:关于《广晟有色金属股份有限公司收购报告书》的法律意见书 http://static.cninfo.com.cn/finalpage/2024-01-06/1218817928.PDF 
 
-金陵药业:金陵药业股份有限公司关于签署《收购意向书》暨关联交易提示性公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218807774.PDF 
+广晟有色:广晟有色金属股份有限公司关于披露收购报告书的提示性公告 http://static.cninfo.com.cn/finalpage/2024-01-06/1218817927.PDF 
 
-并购重组 有9条新公告 
+广晟有色:关于免于发出要约的法律意见书 http://static.cninfo.com.cn/finalpage/2024-01-06/1218817926.PDF 
 
-四川九洲:四川九洲电器股份有限公司董事会关于本次交易是否构成重大资产重组、关联交易及重组上市的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810485.PDF 
+天富能源:恒泰长财证券有限责任公司关于新疆天富能源股份有限公司收购报告书之2023年第4季度持续督导报告 http://static.cninfo.com.cn/finalpage/2024-01-06/1218817464.PDF 
 
-四川九洲:四川九洲电器股份有限公司董事会关于本次交易不构成《上市公司重大资产重组管理办法》第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810481.PDF 
+南钢股份:南京钢铁股份有限公司关于湖北新冶钢有限公司要约收购公司股份的第三次提示性公告 http://static.cninfo.com.cn/finalpage/2024-01-06/1218817462.PDF 
 
-四川九洲:四川九洲电器股份有限公司董事会关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810479.PDF 
+华建集团:华东建筑集团股份有限公司关于协议收购上海房屋质量检测站有限公司100%股权暨关联交易实施完成的公告 http://static.cninfo.com.cn/finalpage/2024-01-06/1218816138.PDF 
 
-四川九洲:四川九洲电器股份有限公司董事会关于交易相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810476.PDF 
+柯力传感:柯力传感关于对外投资暨收购华虹科技的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-06/1218815980.PDF 
 
-四川九洲:四川九洲电器股份有限公司董事会关于本次交易符合《上市公司重大资产重组管理办法》第十一条和第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810470.PDF 
+首开股份:首开股份关于资产收购的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-06/1218815240.PDF 
 
-烽火电子:关于重大资产重组涉及军工事项审查获得国防科工局批复的公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218810178.PDF 
+并购重组 有1条新公告 
 
-华西能源:关于延期回复深圳证券交易所并购重组问询函的公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218809067.PDF 
-
-亚玛顿:关于披露重大资产重组预案后的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218808914.PDF 
-
-华鼎股份:义乌华鼎锦纶股份有限公司关于涉及重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-05/1218808866.PDF 
+天桥起重:关于央地企业联合重组的公告 http://static.cninfo.com.cn/finalpage/2024-01-06/1218818195.PDF 
 
