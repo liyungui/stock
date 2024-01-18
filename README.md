@@ -1,28 +1,18 @@
 要约收购 有3条新公告 
 
-朗新集团:拟收购邦道科技有限公司股权所涉及邦道科技有限公司股东全部权益价值资产评估报告 http://static.cninfo.com.cn/finalpage/2024-01-18/1218934028.PDF 
+高鸿股份:大唐高鸿通信技术有限公司拟收购股权所涉及的大唐信服科技有限公司股东全部权益资产评估报告 http://static.cninfo.com.cn/finalpage/2024-01-19/1218945135.PDF 
 
-博杰股份:关于与联合投资人共同收购资产的公告 http://static.cninfo.com.cn/finalpage/2024-01-18/1218933799.PDF 
+高鸿股份:关于下属公司收购参股公司部分股权的公告 http://static.cninfo.com.cn/finalpage/2024-01-19/1218945134.PDF 
 
-赣锋锂业:关于收购Mali Lithium公司部分股权涉及矿业权投资的公告 http://static.cninfo.com.cn/finalpage/2024-01-18/1218933296.PDF 
+中原环保:关于以公开摘牌方式收购控股子公司少数股权事项完成工商变更登记的公告 http://static.cninfo.com.cn/finalpage/2024-01-19/1218944707.PDF 
 
-并购重组 有9条新公告 
+混合所有制改革 有1条新公告 
 
-朗新集团:董事会关于本次交易符合《上市公司重大资产重组管理办法》第十一条、第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-18/1218934048.PDF 
+江苏索普:光大证券关于江苏索普股权分置改革2023年年度保荐工作报告书 http://static.cninfo.com.cn/finalpage/2024-01-19/1218943914.PDF 
 
-朗新集团:董事会关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-18/1218934040.PDF 
+并购重组 有2条新公告 
 
-朗新集团:董事会关于本次交易不构成《上市公司重大资产重组管理办法》第十二条规定的重大资产重组以及第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-18/1218934038.PDF 
+ST大集:关于重大资产重组业绩补偿诉讼案一审判决生效的公告 http://static.cninfo.com.cn/finalpage/2024-01-19/1218944583.PDF 
 
-朗新集团:董事会关于批准公司重大资产重组暨关联交易有关审计报告、备考审阅报告、评估报告的说明 http://static.cninfo.com.cn/finalpage/2024-01-18/1218934018.PDF 
-
-朗新集团:董事会关于本次交易相关主体不存在依据《上市公司监管指引第7号—上市公司重大资产重组相关股票异常交易监管》第十二条不得参与任何上市公司重大资产重组情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-18/1218934015.PDF 
-
-朗新集团:中信证券股份有限公司关于朗新科技集团股份有限公司发行股份购买资产不构成《上市公司重大资产重组管理办法》第十二条规定的重大资产重组以及第十三条规定的重组上市情形的核查意见 http://static.cninfo.com.cn/finalpage/2024-01-18/1218934009.PDF 
-
-博杰股份:关于控股子公司（拟设立）向银行申请并购贷款的公告 http://static.cninfo.com.cn/finalpage/2024-01-18/1218933801.PDF 
-
-展鹏科技:展鹏科技股份有限公司关于重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-18/1218930780.PDF 
-
-济民医疗:济民健康管理股份有限公司关于对应收股权回购款进行债务重组的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-18/1218930778.PDF 
+华嵘控股:华嵘控股关于重大资产重组事项的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-19/1218943444.PDF 
 
