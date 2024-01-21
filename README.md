@@ -1,40 +1,18 @@
-要约收购 有7条新公告 
+要约收购 有3条新公告 
 
-盛屯矿业:盛屯矿业集团股份有限公司关于股权收购暨关联交易的公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218955788.PDF 
+炬光科技:西安炬光科技股份有限公司关于收购SUSS MicroOptics SA 100%股权事项的补充公告 http://static.cninfo.com.cn/finalpage/2024-01-22/1218958597.PDF 
 
-长春燃气:北京市金杜律师事务所关于长春市城市发展投资控股（集团）有限公司免于发出要约事宜之法律意见书 http://static.cninfo.com.cn/finalpage/2024-01-20/1218955754.PDF 
+金诚信:金诚信矿业管理股份有限公司拟收购LUBAMBE COPPER MINE LIMITED专项审计报告 http://static.cninfo.com.cn/finalpage/2024-01-22/1218958561.PDF 
 
-长春燃气:长春燃气股份有限公司收购报告书 http://static.cninfo.com.cn/finalpage/2024-01-20/1218955753.PDF 
+金诚信:金诚信关于拟收购Lubambe铜矿的公告 http://static.cninfo.com.cn/finalpage/2024-01-22/1218958559.PDF 
 
-长春燃气:北京市金杜律师事务所关于《长春燃气股份有限公司收购报告书》之法律意见书 http://static.cninfo.com.cn/finalpage/2024-01-20/1218955752.PDF 
+并购重组 有4条新公告 
 
-南钢股份:南京钢铁股份有限公司关于湖北新冶钢有限公司全面要约收购公司股份交割完成的公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218955749.PDF 
+ST同洲:关于本次交易符合《上市公司重大资产重组管理办法》第十一条、第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-22/1218956576.PDF 
 
-华康股份:华康股份关于子公司收购浙江精功农业发展有限公司100%股权的公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218950543.PDF 
+ST同洲:关于本次交易相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条规定情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-22/1218956572.PDF 
 
-邵阳液压:关于筹划重大资产重组暨签订股份收购意向书进展的公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218950042.PDF 
+ST同洲:关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-22/1218956567.PDF 
 
-混合所有制改革 有1条新公告 
-
-四川长虹:四川长虹电器股份有限公司股权分置改革2023年年度保荐工作报告书 http://static.cninfo.com.cn/finalpage/2024-01-20/1218956371.PDF 
-
-并购重组 有2条新公告 
-
-ST工智:关于重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218950672.PDF 
-
-邵阳液压:关于筹划重大资产重组暨签订股份收购意向书进展的公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218950042.PDF 
-
-金域医学 有4条新公告 
-
-金域医学:广州金域医学检验集团股份有限公司第三届监事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218956040.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司关于公司向银行申请综合授信额度的公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218956039.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司关于以集中竞价交易方式回购股份的回购报告书 http://static.cninfo.com.cn/finalpage/2024-01-20/1218956037.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司第三届董事会第十八次会议决议公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218956036.PDF 
-
-德赛电池 有1条新公告 
-
-德赛电池:关于公司拟变更为无实际控制人的提示性公告 http://static.cninfo.com.cn/finalpage/2024-01-20/1218956104.PDF 
+ST同洲:关于本次交易预计构成《上市公司重大资产重组管理办法》第十二条规定的重大资产重组、但不构成第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-22/1218956560.PDF 
 
