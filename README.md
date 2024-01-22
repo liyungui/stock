@@ -1,18 +1,48 @@
-要约收购 有3条新公告 
+要约收购 有6条新公告 
 
-炬光科技:西安炬光科技股份有限公司关于收购SUSS MicroOptics SA 100%股权事项的补充公告 http://static.cninfo.com.cn/finalpage/2024-01-22/1218958597.PDF 
+思瑞浦:思瑞浦微电子科技（苏州）股份有限公司发行可转换公司债券及支付现金收购深圳市创芯微微电子股份有限公司股权项目资产评估报告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970279.PDF 
 
-金诚信:金诚信矿业管理股份有限公司拟收购LUBAMBE COPPER MINE LIMITED专项审计报告 http://static.cninfo.com.cn/finalpage/2024-01-22/1218958561.PDF 
+思瑞浦:思瑞浦微电子科技（苏州）股份有限公司发行可转换公司债券及支付现金收购深圳市创芯微微电子股份有限公司股权项目资产评估说明 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970222.PDF 
 
-金诚信:金诚信关于拟收购Lubambe铜矿的公告 http://static.cninfo.com.cn/finalpage/2024-01-22/1218958559.PDF 
+顺控发展:关于收购佛山顺合环保有限公司100%股权暨提供担保的补充公告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970100.PDF 
 
-并购重组 有4条新公告 
+高鸿股份:关于下属公司收购参股公司部分股权的完成公告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218968756.PDF 
 
-ST同洲:关于本次交易符合《上市公司重大资产重组管理办法》第十一条、第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-22/1218956576.PDF 
+天安新材:天安新材关于拟收购控股子公司浙江瑞欣装饰材料有限公司少数股东股权的公告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218968300.PDF 
 
-ST同洲:关于本次交易相关主体不存在《上市公司监管指引第7号——上市公司重大资产重组相关股票异常交易监管》第十二条规定情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-22/1218956572.PDF 
+巨化股份:巨化股份关于收购股权事项完成变更登记的公告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218968281.PDF 
 
-ST同洲:关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-22/1218956567.PDF 
+并购重组 有14条新公告 
 
-ST同洲:关于本次交易预计构成《上市公司重大资产重组管理办法》第十二条规定的重大资产重组、但不构成第十三条规定的重组上市情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-22/1218956560.PDF 
+思瑞浦:董事会关于本次交易不构成重大资产重组且不构成重组上市的说明 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970280.PDF 
+
+思瑞浦:董事会关于本次交易符合《上海证券交易所科创板股票上市规则》第11.2条、《科创板上市公司持续监管办法（试行）》第二十条和《上海证券交易所上市公司重大资产重组审核规则》第八条的相关规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970278.PDF 
+
+思瑞浦:关于本次方案调整构成重组方案重大调整的公告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970249.PDF 
+
+思瑞浦:华泰联合证券有限责任公司关于思瑞浦微电子科技（苏州）股份有限公司本次交易不构成重组上市的核查意见 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970242.PDF 
+
+思瑞浦:华泰联合证券有限责任公司关于思瑞浦微电子科技（苏州）股份有限公司本次重组摊薄即期回报情况及填补措施之专项核查意见 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970234.PDF 
+
+思瑞浦:华泰联合证券有限责任公司关于思瑞浦微电子科技（苏州）股份有限公司本次交易方案调整构成重组方案重大调整的核查意见 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970233.PDF 
+
+思瑞浦:华泰联合证券有限责任公司关于思瑞浦微电子科技（苏州）股份有限公司本次重组产业政策和交易类型之专项核查意见 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970231.PDF 
+
+思瑞浦:董事会关于本次交易相关主体不存在《上市公司监管指引第7号—上市公司重大资产重组相关股票异常交易监管》第十二条或《上海证券交易所上市公司自律监管指引第6号—重大资产重组》第三十条情形的说明 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970227.PDF 
+
+思瑞浦:董事会关于本次交易符合《上市公司监管指引第9号——上市公司筹划和实施重大资产重组的监管要求》第四条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970226.PDF 
+
+思瑞浦:华泰联合证券有限责任公司关于思瑞浦微电子科技（苏州）股份有限公司本次重组前12个月内购买、出售资产情况的核查意见 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970221.PDF 
+
+思瑞浦:董事会关于本次交易符合《上市公司重大资产重组管理办法》第十一条和第四十三条规定的说明 http://static.cninfo.com.cn/finalpage/2024-01-23/1218970214.PDF 
+
+威帝股份:哈尔滨威帝电子股份有限公司关于重大资产重组进展暨无法在规定时间内发出股东大会通知的专项说明 http://static.cninfo.com.cn/finalpage/2024-01-23/1218969260.PDF 
+
+新能泰山:关于筹划重大资产重组的进展公告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218968365.PDF 
+
+汉商集团:汉商集团关于重大资产重组进展公告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218967815.PDF 
+
+天味食品 有1条新公告 
+
+天味食品:2023年度业绩快报公告 http://static.cninfo.com.cn/finalpage/2024-01-23/1218967821.PDF 
 
