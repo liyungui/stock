@@ -1,138 +1,98 @@
-天味食品 有2条新公告 
+东方日升 有48条新公告 
 
-天味食品:2024年第一季度报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219815182.PDF 
+东方日升:关于公司组织结构调整的公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861696.PDF 
 
-天味食品:2024年第一季度主要经营数据公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219815181.PDF 
+东方日升:关于2023年度计提资产减值准备及核销应收账款的公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861695.PDF 
 
-爱尔眼科 有33条新公告 
+东方日升:会计师事务所选聘制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861694.PDF 
 
-爱尔眼科:2024年一季度报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826393.PDF 
+东方日升:董事会对独董独立性评估的专项意见 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861693.PDF 
 
-爱尔眼科:2023年年度报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826392.PDF 
+东方日升:中信建投证券股份有限公司关于东方日升新能源股份有限公司使用部分闲置募集资金及自有资金进行现金管理的核查意见 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861692.PDF 
 
-爱尔眼科:华泰联合证券有限责任公司关于爱尔眼科2023年度证券投资情况的核查意见 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826391.PDF 
+东方日升:独立董事2023年度述职报告-霍佳震 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861691.PDF 
 
-爱尔眼科:2023年年度募集资金存放与使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826390.PDF 
+东方日升:董事会秘书工作细则（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861690.PDF 
 
-爱尔眼科:关于2023年年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826388.PDF 
+东方日升:中信建投证券股份有限公司关于东方日升新能源股份有限公司2023年度内部控制评价报告的核查意见 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861689.PDF 
 
-爱尔眼科:2023年年度报告摘要 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826387.PDF 
+东方日升:关于举行2023年度网上业绩说明会的公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861688.PDF 
 
-爱尔眼科:关于爱尔眼科医院集团股份有限公司募集资金年度存放与实际使用情况的鉴证报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826386.PDF 
+东方日升:董事会审计管理委员会工作细则（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861687.PDF 
 
-爱尔眼科:关于举办2023年年度网上业绩说明会的通知 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826385.PDF 
+东方日升:东方日升新能源股份有限公司章程修正案 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861686.PDF 
 
-爱尔眼科:2023年年度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826384.PDF 
+东方日升:公司章程（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861685.PDF 
 
-爱尔眼科:独立董事2023年年度述职报告（郭月梅） http://static.cninfo.com.cn/finalpage/2024-04-26/1219826382.PDF 
+东方日升:2023年年度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861684.PDF 
 
-爱尔眼科:2023年年度内部控制自我评价报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826381.PDF 
+东方日升:对外投资管理制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861683.PDF 
 
-爱尔眼科:2023年年度监事会工作报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826379.PDF 
+东方日升:年报信息披露重大差错责任追究制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861682.PDF 
 
-爱尔眼科:监事会决议公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826376.PDF 
+东方日升:内部审计制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861681.PDF 
 
-爱尔眼科:2023年年度财务报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826374.PDF 
+东方日升:关于2024年度向银行申请综合授信额度的公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861680.PDF 
 
-爱尔眼科:2023年年度证券与衍生品投资情况的专项报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826372.PDF 
+东方日升:2023年年度报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861679.PDF 
 
-爱尔眼科:关于聘请2024年年度审计机构的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826371.PDF 
+东方日升:募集资金管理制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861678.PDF 
 
-爱尔眼科:2024年第一季度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826369.PDF 
+东方日升:2023年年度募集资金存放与使用情况的专项报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861677.PDF 
 
-爱尔眼科:关于会计师事务所2023年度履职情况的评估报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826367.PDF 
+东方日升:董事会审计管理委员会对会计师事务所2023年度履职情况评估及履行监督职责情况的报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861676.PDF 
 
-爱尔眼科:2023年年度董事会工作报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826365.PDF 
+东方日升:监事会决议公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861675.PDF 
 
-爱尔眼科:2023年年度审计报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826363.PDF 
+东方日升:中信建投证券股份有限公司关于东方日升新能源股份有限公司2023年度持续督导定期现场检查报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861674.PDF 
 
-爱尔眼科:关于爱尔眼科医院集团股份有限公司非经营性资金占用及其他关联资金往来情况汇总表的专项审核报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826361.PDF 
+东方日升:2023年可持续发展报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861673.PDF 
 
-爱尔眼科:华泰联合证券有限责任公司关于爱尔眼科2023年年度内部控制自我评价报告的核查意见 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826359.PDF 
+东方日升:投资者关系管理制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861672.PDF 
 
-爱尔眼科:内控鉴证报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826357.PDF 
+东方日升:中信建投证券股份有限公司关于东方日升新能源股份有限公司预计公司及下属公司开展远期结售汇业务及外汇期权业务的核查意见 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861671.PDF 
 
-爱尔眼科:董事会决议公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826355.PDF 
+东方日升:大华核字[2024]0011000596号东方日升能源股份有限公司控股股东及其他关联方资金占用情况的专项说明 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861670.PDF 
 
-爱尔眼科:关于计提资产减值准备及核销资产的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826354.PDF 
+东方日升:独立董事专门会议议事规则（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861669.PDF 
 
-爱尔眼科:独立董事2023年年度述职报告（陈收） http://static.cninfo.com.cn/finalpage/2024-04-26/1219826352.PDF 
+东方日升:大华核字[2024]0011000595号东方日升新能源股份有限公司募集资金存放与使用情况鉴证报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861667.PDF 
 
-爱尔眼科:华泰联合证券有限责任公司关于爱尔眼科2023年年度募集资金存放与使用情况专项核查报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826351.PDF 
+东方日升:对外担保管理制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861666.PDF 
 
-爱尔眼科:2023年度非经营性资金占用及其他关联资金往来情况汇总表 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826349.PDF 
+东方日升:股东大会议事规则（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861665.PDF 
 
-爱尔眼科:独立董事2023年年度述职报告（高国垒） http://static.cninfo.com.cn/finalpage/2024-04-26/1219826348.PDF 
+东方日升:关于预计公司及下属公司开展远期结售汇业务及外汇期权业务与可行性分析的公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861664.PDF 
 
-爱尔眼科:2023年年度社会责任报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826346.PDF 
+东方日升:2023年年度报告摘要 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861663.PDF 
 
-爱尔眼科:关于2024年年度向银行申请综合授信的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826343.PDF 
+东方日升:关于预计公司及下属公司担保额度的公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861662.PDF 
 
-爱尔眼科:关于召开2023年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826342.PDF 
+东方日升:中信建投证券股份有限公司关于东方日升新能源股份有限公司2023年度募集资金存放与使用情况的专项核查意见 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861661.PDF 
 
-爱尔眼科:董事会对独董独立性评估的专项意见 http://static.cninfo.com.cn/finalpage/2024-04-26/1219826340.PDF 
+东方日升:独立董事2023年度述职报告-陈柳 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861660.PDF 
 
-金域医学 有22条新公告 
+东方日升:关于2023年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861659.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司二〇二三年度审计报告及财务报表 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836755.PDF 
+东方日升:关于召开2023年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861658.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2023年度独立董事述职报告（凌健华） http://static.cninfo.com.cn/finalpage/2024-04-26/1219836754.PDF 
+东方日升:中信建投证券股份有限公司关于东方日升新能源股份有限公司2023年度跟踪报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861657.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于召开2023年年度股东大会的通知 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836753.PDF 
+东方日升:2023年度内部控制自我评价报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861656.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于公司及子公司向银行申请综合授信额度的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836752.PDF 
+东方日升:独立董事工作制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861655.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2023年度内部控制审计报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836751.PDF 
+东方日升:信息披露管理制度（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861653.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2023年度独立董事述职报告（徐景明） http://static.cninfo.com.cn/finalpage/2024-04-26/1219836750.PDF 
+东方日升:董事会薪酬与绩效管理委员会工作细则（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861649.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2023年度关联方占用资金专项审计说明 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836749.PDF 
+东方日升:董事会决议公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861646.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司第三届监事会第二十次会议决议公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836747.PDF 
+东方日升:关于使用部分闲置募集资金及自有资金进行现金管理的公告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861643.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2023年年度报告摘要 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836746.PDF 
+东方日升:2023年年度审计报告 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861641.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司2023年可持续发展报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836745.PDF 
+东方日升:独立董事2023年度述职报告-吴瑛 http://static.cninfo.com.cn/finalpage/2024-04-27/1219861637.PDF 
 
-金域医学:广州金域医学检验集团股份有限公司关于续聘会计师事务所的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836744.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司对会计师事务所2023年度履职情况评估报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836742.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司2023年度独立董事述职报告（余玉苗） http://static.cninfo.com.cn/finalpage/2024-04-26/1219836741.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司董事会审计委员会对会计师事务所履行监督职责情况的报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836740.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司2023年度审计委员会履职情况报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836739.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司2024年第一季度报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836738.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司关于2023年度利润分配预案的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836737.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司第三届董事会第二十次会议决议公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836736.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司2023年年度报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836734.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司2023年度内部控制评价报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836732.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司董事会关于独立董事独立性情况的专项意见 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836730.PDF 
-
-金域医学:广州金域医学检验集团股份有限公司关于计提资产减值准备的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219836729.PDF 
-
-德赛电池 有1条新公告 
-
-德赛电池:2023年年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219827059.PDF 
-
-兴齐眼药 有3条新公告 
-
-兴齐眼药:关于“质量回报双提升”行动方案的进展公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219815584.PDF 
-
-兴齐眼药:2024年第一季度报告披露提示性公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219814735.PDF 
-
-兴齐眼药:2024年一季度报告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219814733.PDF 
-
-金龙鱼 有2条新公告 
-
-金龙鱼:2023年度权益分派实施公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219820010.PDF 
-
-金龙鱼:关于控股股东股权结构变更的公告 http://static.cninfo.com.cn/finalpage/2024-04-26/1219820009.PDF 
+东方日升:董事会战略与可持续发展委员会工作细则（2024年4月） http://static.cninfo.com.cn/finalpage/2024-04-27/1219861634.PDF 
 
