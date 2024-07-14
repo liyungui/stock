@@ -1,8 +1,12 @@
-要约收购 有1条新公告 
+阳光电源 有3条新公告 
 
-青岛港:北京市通商律师事务所关于山东港口烟台港集团有限公司及其一致行动人免于以要约方式收购青岛港国际股份有限公司股份的法律意见书 http://static.cninfo.com.cn/finalpage/2024-07-13/1220627394.PDF 
+阳光电源:关于回购公司股份方案的公告 http://static.cninfo.com.cn/finalpage/2024-07-15/1220627488.PDF 
 
-天味食品 有1条新公告 
+阳光电源:关于回购股份实施结果暨股份变动的公告 http://static.cninfo.com.cn/finalpage/2024-07-15/1220627486.PDF 
 
-天味食品:2024年员工持股计划第一次持有人会议决议公告 http://static.cninfo.com.cn/finalpage/2024-07-13/1220626204.PDF 
+阳光电源:第五届董事会第八次会议决议公告 http://static.cninfo.com.cn/finalpage/2024-07-15/1220627485.PDF 
+
+科顺股份 有1条新公告 
+
+科顺股份:2024年半年度业绩预告 http://static.cninfo.com.cn/finalpage/2024-07-15/1220627917.PDF 
 
